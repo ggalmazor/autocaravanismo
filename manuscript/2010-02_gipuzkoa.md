@@ -1,6 +1,7 @@
 # El interior de Guipúzcoa
+## 2010, febrero
 
-![](parkingaranzazu300x160.jpg)
+![Parking de Nuestra Señora de Aránzazu](parkingaranzazu300x160.jpg)
 
 **Parking de Nuestra Señora de Aránzazu**
 
@@ -10,7 +11,7 @@ Oñate es una población de algo más de diez mil habitantes con una larga histo
 
 En Oñate se puede pernoctar en el parking de Ibarra, al lado del cuartel de la  Guardia Civil ( 43º02’06,32”N y 02º25’03,25”W).
 
-![](parkingoate300x200.jpg)
+![Parking en Oñate](parkingoate300x200.jpg)
 
 **Parking en Oñate**
 
@@ -30,7 +31,7 @@ Siguiendo la  carretera GI631, 22 kilómetros más al norte se encuentra la vill
 
 Los recursos para autocaravana se completan con dos áreas, una situada en la población de Irura, dotada de servicios para el vaciado y llenado de depósitos y dos plazas para pernoctar, está situada junto a la NI en 43º10’03,87N y 02º03’57,08”W y se puede acceder en los dos sentidos de la marcha.
 
-![](claustro300x200.jpg)
+![Claustro](claustro300x200.jpg)
 
 **Claustro**
 

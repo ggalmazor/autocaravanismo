@@ -1,10 +1,11 @@
 # La vuelta a España en autocaravana en ochenta áreas
+## 2011, 19 marzo - 3 abril
 
-![](p3310322.jpg)
+![Marismas, caballos y flamencos en el Rocío](p3310322.jpg)
 
 **Marismas, caballos y flamencos en el Rocío**
 
-Una salida por la Península Ibérica en autocaravana satisface siempre las expectativas. Estar en contacto con la naturaleza o admirar, una vez más, nuevos matices del extenso patrimonio histórico que atesora.
+Una salida por la Península Ibérica en autocaravana satisface siempre las expectativas. Estar en contacto con la naturaleza o admirar, una vez más, nuevos matices del extenso patrimonio histórico que atesora.
 
 Es evidente que el título es exagerado ni es una vuelta a España ni son ochenta áreas las visitadas. “Una vuelta por España” hubiera sido más indicado, pero menos poético o llamativo.
 
@@ -12,9 +13,9 @@ Lo cierto que hemos recorrido en círculo media Península Ibérica y nos hemos 
 
 La idea inicial era viajar hacia el sur en paralelo con Portugal hasta Huelva, recorrer el Algarve portugués y regresar hacia el norte por el interior de éste País. Sin embargo aprovechando la principal característica del turismo en autocaravana improvisamos el regreso desde Huelva visitando Andalucía y recorriendo algunos lugares de Castilla-La Mancha.
 
-![](p3200085300x169.jpg)
+![Área de Valladolid, perfecta.](p3200085300x169.jpg)
 
-![](p3220138300x169.jpg)
+![Estación del FC abandonada en Logrosán](p3220138300x169.jpg)
 
 **Vitoria – Gasteiz (19.03.2011)**
 
@@ -44,13 +45,13 @@ Un paisaje realmente bonito, verde, surcado de arroyos con agua merced a las rec
 
 Iniciamos el recorrido desde la antigua estación de FC abandonada a la que accedimos con la AC desde una carretera estrecha que se inicia en el centro de la población.
 
-![](p3230162300x169.jpg)
+![Castillo de Fregenal de la Sierra](p3230162300x169.jpg)
 
-![](p3230168300x169.jpg)
+![Mina de Rio Tinto](p3230168300x169.jpg)
 
-![](p32401961300x169.jpg)
+![Jara en flor en la vía verde de los Molinos del Agua](p32401961300x169.jpg)
 
-![](p3260232300x169.jpg)
+![Área para autocaravanas en Castro Marim](p3260232300x169.jpg)
 
 **Castillo de Fregenal de la Sierra**
 
@@ -84,9 +85,9 @@ Llegamos al parking de Punta Umbría recomendado en las guías. Se trata de espa
 
 Al día siguiente dimos un bonito paseo en bicicleta por el paraje natural de los Enebrales de Punta Umbria, un ecosistema dunar entre enebros, sabinas y pinos piñoneros que todavía, a duras penas, respeta el ladrillo y el cemento.
 
-![](p32802481300x169.jpg)
+![Puente internacional sobre el Guadiana](p32802481300x169.jpg)
 
-![](p3300281300x169.jpg)
+![Costa del Atlántico en Huelva](p3300281300x169.jpg)
 
 **Puente internacional sobre el Guadiana**
 
@@ -116,11 +117,11 @@ Ayamonte es una bonita población que dispone de espacios para estacionar y pern
 
 Una vía mal cuidada con el suelo irregular pero practicable que pudimos recorrer en nuestras bicicletas de ciudad. Un paseo muy interesante con un paisaje realmente bello a pesar de las basuras y vertidos que encontramos al atravesar el Paraje Natural de las Marismas de Isla Cristina. Visitamos el molino mareal restaurado “El Hombre y la Marisma” y el palomar “Huerta Noble” que llegó a albergar treinta y dos mil palomas.
 
-![](p33103023300x169.jpg)
+![Parking en Matalascañas](p33103023300x169.jpg)
 
-![](p3310314300x169.jpg)
+![Pinos y sabinas en las dunas](p3310314300x169.jpg)
 
-![](p4010338300x169.jpg)
+![Abiente](p4010338300x169.jpg)
 
 **Matalascañas (30.03.2011)**
 
@@ -154,7 +155,7 @@ Al día siguiente visitamos una vez más una ciudad que nos atrae. La catedral i
 
 Una noche más en el área soportando hasta una hora bastante avanzada el ruido de la música y las conversaciones en voz alta de los asiduos a las terrazas de los bares que hay en el puerto aunque esos inconvenientes afortunadamente no alteran nuestro sueño.
 
-![](p4040474300x169.jpg)
+![Por la vía verde del aceite](p4040474300x169.jpg)
 
 **Por la vía verde del aceite**
 

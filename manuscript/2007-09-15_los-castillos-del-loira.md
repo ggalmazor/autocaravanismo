@@ -1,6 +1,7 @@
-# Los Castillos del Loira en Autocaravana.
+# Los Castillos del Loira
+## 2007, 15 septiembre - 1 octubre
 
-![](img_1213300x225.jpg)
+![Área de Bicarrosse (Navarrosse)](img_1213300x225.jpg)
 
 **Área de Bicarrosse (Navarrosse)**
 
@@ -8,13 +9,13 @@ Esta es una de nuestras salidas favoritas a Francia. En esta ocasión nuestro ob
 
 Los castillos del Loira es un objetivo turístico de culto, pero el patrimonio histórico no es el único atractivo. También lo es la gastronomía y el vino.
 
-Cuando se utiliza una autocaravana para viajar y el tiempo no es un bien escaso, es posible añadir el propio viaje al objetivo. Uno de los atractivos de la autocaravana es convertir la ida y el regreso  en un componente lúdico inseparable.
+Cuando se utiliza una autocaravana para viajar y el tiempo no es un bien escaso, es posible añadir el propio viaje al objetivo. Uno de los atractivos de la autocaravana es convertir la ida y el regreso  en un componente lúdico inseparable.
 
 **Arsenio y Charo. septiembre 2007**
 
-![](img_1229300x225.jpg)
+![Atardecer en el parking del puerto de Arcachon](img_1229300x225.jpg)
 
-![](img_1233300x225.jpg)
+![El mejor bioche del viaje.](img_1233300x225.jpg)
 
 **Atardecer en el parking del puerto de Arcachon**
 
@@ -36,13 +37,13 @@ Arcachón pertenece al departamento de La Gironde, en el corazón de las Landas 
 
 Visitamos la ciudad a pié y en bicicleta paseando por una extensa playa con la arena fina característica del Atlántico.
 
-![](img_1253300x225.jpg)
+![La huerta de los "frutos de la Mar"](img_1253300x225.jpg)
 
-![](img_12661300x225.jpg)
+![Fort Boyard](img_12661300x225.jpg)
 
-![](img_1295300x225.jpg)
+![La corderie.](img_1295300x225.jpg)
 
-![](img_1297300x225.jpg)
+![Réplica de la fragata Hermione que intervino en la guerra de independencia de la EEUU](img_1297300x225.jpg)
 
 **La huerta de los "frutos de la Mar"**
 
@@ -82,11 +83,11 @@ Nos desplazamos también, entre nubes de mosquitos y a través de una pista acon
 
 El 21 de septiembre, viernes por la tarde, nos desplazamos hasta el área de Sainte Maure de Touraine donde hacemos un descanso táctico. Se trata de un área privada (5,00€ con servicios), en un lugar bonito, simpático, tranquilo y seguro.
 
-![](img_1337300x225.jpg)
+![Magníficos paseos para bicicleta.](img_1337300x225.jpg)
 
-![](img_1350300x225.jpg)
+![Vista del Loira desde el castillo de Chinon.](img_1350300x225.jpg)
 
-![](img_1394225x300.jpg)
+![Chimeneas de las cocinas románicas de la abadía de Fontevraud.](img_1394225x300.jpg)
 
 **La zona de Angers**
 
@@ -108,17 +109,17 @@ A media tarde nos acercamos hasta Angers, primera ciudad importante del recorrid
 
 Se trata de un antiguo camping municipal reconvertido en área de autocaravanas, arbolado, a las orillas del Maine y con bloque sanitario y todos los servicios. Todos los usuarios despliegan elementos y en septiembre es gratuita aunque en temporada alta cuesta 6,00€ al día.
 
-Al día siguiente nos desplazaos hasta Angers para visitar la ciudad y su imponente castillo regresando a mediodía al área. Por la tarde dos horas de paseo en bicicleta y a disfrutar del área  cuyas parcelas tienen hierba.
+Al día siguiente nos desplazaos hasta Angers para visitar la ciudad y su imponente castillo regresando a mediodía al área. Por la tarde dos horas de paseo en bicicleta y a disfrutar del área  cuyas parcelas tienen hierba.
 
 La zona dispone de extensos caminos acondicionados para bicicletas en las orillas del Maine y nos llevan, por lado hasta Angers, por otro hasta Sainte Gemmes-sur-Loire y finalmente hasta Savenières y Bèuhard. Visitamos en estos pueblos unas pequeñas iglesias románicas muy interesantes. Permanecimos tres días.
 
-![](img_1497300x225.jpg)
+![Área de Bouchemaine cerca de Angers.](img_1497300x225.jpg)
 
-![](img_1537300x225.jpg)
+![Puente sobre el Loira en Blois.](img_1537300x225.jpg)
 
-![](img_1585300x225.jpg)
+![Castillo de Chambord](img_1585300x225.jpg)
 
-![](img_1642300x225.jpg)
+![Parking del castillo de Chambord.](img_1642300x225.jpg)
 
 **La zona de castillos**
 
@@ -148,11 +149,11 @@ Al caer la tarde iniciamos el regreso rumbo al sur, parando a pernoctar en el á
 
 El área, perteneciente al parking de la Maison du Pays, aunque incómoda y ruidosa por la proximidad de la carretera dormimos de un tirón.
 
-![](img_1645300x225.jpg)
+![Área de Perigueux](img_1645300x225.jpg)
 
-![](img_1687300x225.jpg)
+![Acogida (France Passion) en Montbazillac.](img_1687300x225.jpg)
 
-![](img_1678300x225.jpg)
+![El castillo de Montbazillac](img_1678300x225.jpg)
 
 **Área de Perigueux**
 

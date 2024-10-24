@@ -1,6 +1,7 @@
 # Francia entre el mar, el Loira y sus castillos
+## 2012, agosto
 
-![](img_1515300x225.jpg)
+![Castillo Real de Amboise](img_1515300x225.jpg)
 
 **Castillo Real de Amboise**
 
@@ -8,11 +9,11 @@ Francia es uno de nuestros destinos habituales por la proximidad y por la cantid
 
 Los castillos del Loira es un objetivo turístico de culto para los autocaravanistas, aunque el patrimonio histórico no es el único atractivo. El paisaje, la gastronomía y el vino complementan los incentivos. Un viaje que comienza en la costa atlántica.
 
-Cuando se utiliza una autocaravana para viajar y el tiempo no es un bien escaso, es posible añadir el propio viaje al objetivo. Uno de los atractivos de la autocaravana es convertir la ida y el regreso  en un componente más del propio objetivo.
+Cuando se utiliza una autocaravana para viajar y el tiempo no es un bien escaso, es posible añadir el propio viaje al objetivo. Uno de los atractivos de la autocaravana es convertir la ida y el regreso  en un componente más del propio objetivo.
 
-![](img_1213300x225.jpg)
+![Área de Bicarrosse le Navarrosse](img_1213300x225.jpg)
 
-![](img_1229300x225.jpg)
+![Vista al puerto de Navarrosse en el lago](img_1229300x225.jpg)
 
 **Aquitania**
 
@@ -28,23 +29,23 @@ Está situada al borde del lago de Cazaux y de Sanguinet en un entorno de bosque
 
 El tiempo invita a bañarse en el lago y dar largos paseos por la pista adaptada para bicicletas que discurre a lo largo del literal cantábrico en la región de Aquitania.
 
-El 17 llegamos a Arcachón, que dispone de un área gratuita para unas dos docenas de autocaravanas. Está situada próxima al puerto deportivo.
+El 17 llegamos a Arcachón, que dispone de un área gratuita para unas dos docenas de autocaravanas. Está situada próxima al puerto deportivo.
 
 Arcachón pertenece al departamento de La Gironde, en el corazón de las Landas Gasconas en la región de Aquitania. Su economía se basa en el cultivo ostreícola, el turismo y la industria papelera que se nutre de las plantaciones de pinos de la comarca.
 
 Visitamos la ciudad a pié y en bicicleta paseando por una extensa playa con la arena fina característica del Atlántico.
 
-![](img_1233300x225.jpg)
+![El mejor brioche de la historia](img_1233300x225.jpg)
 
-![](img_1253300x225.jpg)
+![Paraíso de mariscadores aficionados](img_1253300x225.jpg)
 
-![](img_1266300x225.jpg)
+![Fort Boyard](img_1266300x225.jpg)
 
-![](img_1288300x225.jpg)
+![Puente transbordador de Rochefort](img_1288300x225.jpg)
 
-![](img_1295300x225.jpg)
+![Museo de la Corderie](img_1295300x225.jpg)
 
-![](img_1297300x225.jpg)
+![La fragata Hermione](img_1297300x225.jpg)
 
 **La isla de Oleron y Rochefort-sur-la-mer**
 
@@ -72,7 +73,7 @@ Guiados por la pareja visitamos Saint Denis, La-Brée-les-Bains y Boyardville. D
 
 **Puente transbordador de Rochefort**
 
-Por el camino hemos hecho un alto en un área de “pique nique” donde hemos dado cuenta de hasta el último molusco. Las ostras crudas con limón y las almejas al vapor, acompañado de jabugo, unos pimientos del piquillo que hacen las delicias de nuestros anfitriones y un par de botellas de albariño “Terras Gaudas”, que teníamos perdidas por la bodega. Por la tarde hemos comprado unas botellas de un excelente Merlot local. Volvimos a pernoctar en la misma área.
+Por el camino hemos hecho un alto en un área de “pique nique” donde hemos dado cuenta de hasta el último molusco. Las ostras crudas con limón y las almejas al vapor, acompañado de jabugo, unos pimientos del piquillo que hacen las delicias de nuestros anfitriones y un par de botellas de albariño “Terras Gaudas”, que teníamos perdidas por la bodega. Por la tarde hemos comprado unas botellas de un excelente Merlot local. Volvimos a pernoctar en la misma área.
 
 A la mañana siguiente nos dirigimos hacia Rochefort donde llegamos a un parking al pié de las murallas que dispone de agua y WC, cuesta 6,00€. En la actualidad hay un nuevo área pública municipal más moderna al sur de la población (45.92735,-0.95467) con acceso sencillo al centro en bicicleta. La terifa es tambi´n de 6,00€/24 horas.
 
@@ -88,11 +89,11 @@ Nos desplazamos también, entre nubes de mosquitos y a través de una pista acon
 
 El 21 de septiembre, viernes por la tarde, continuamos el viaje parando en el área de Sainte Maure de Touraine en el departamento de Indre et Loire (37) donde hacemos un descanso táctico. Se trata de un área gratuita, en un lugar bonito, simpático, tranquilo y seguro.
 
-![](img_1445300x225.jpg)
+![Castillo de Angers](img_1445300x225.jpg)
 
 ![](img_1433300x298.jpg)
 
-![](img_1394225x300.jpg)
+![Chimeneas de la cocina del monasterio de Fontevraud](img_1394225x300.jpg)
 
 **La zona de Angers**
 
@@ -112,17 +113,17 @@ A media tarde nos acercamos hasta Angers, primera ciudad importante del recorrid
 
 Se trata de un antiguo camping municipal reconvertido en área de autocaravanas, arbolado, a las orillas del Maine y con bloque sanitario y todos los servicios. Todos los usuarios despliegan elementos y en septiembre es gratuita aunque en temporada alta cuesta 6,00€ al día. En la actualidad la tarifa es de 10,00€ incluyendo electricidad y Wi-Fi.
 
-Al día siguiente nos desplazamos hasta Angers para visitar la ciudad y su imponente castillo regresando a mediodía al área. Por la tarde dos horas de paseo en bicicleta y a disfrutar del área  cuyas parcelas tienen hierba.
+Al día siguiente nos desplazamos hasta Angers para visitar la ciudad y su imponente castillo regresando a mediodía al área. Por la tarde dos horas de paseo en bicicleta y a disfrutar del área  cuyas parcelas tienen hierba.
 
 La zona dispone de extensos caminos acondicionados para bicicletas en las orillas del Maine y nos llevan, por lado hasta Angers, por otro hasta Sainte Gemmes-sur-Loire y finalmente hasta Savenières y Bèuhard. Visitamos en estos pueblos unas pequeñas iglesias románicas muy interesantes. Permanecimos tres días.
 
-![](img_1585300x225.jpg)
+![Castillo de Chambord](img_1585300x225.jpg)
 
-![](img_1530300x225.jpg)
+![Castillo de Amboise](img_1530300x225.jpg)
 
-![](img_1538300x225.jpg)
+![Puente sobre el Loira en Blois](img_1538300x225.jpg)
 
-![](img_1626300x225.jpg)
+![El entorno del castillo de Chambord se presta a pasear en bicicleta](img_1626300x225.jpg)
 
 **La zona de los castillos**
 
@@ -156,11 +157,11 @@ Al caer la tarde iniciamos el regreso rumbo al sur, parando a pernoctar en el á
 
 El área, perteneciente al parking de la Maison du Pays, aunque incómoda y ruidosa por la proximidad de la carretera dormimos de un tirón.
 
-![](img_1642300x225.jpg)
+![Antigua área de Perigueux con la catedral de Saint Front al fondo.](img_1642300x225.jpg)
 
-![](img_1647300x225.jpg)
+![Camino para bicicletas a la orilla del Isle en Perigueux](img_1647300x225.jpg)
 
-![](img_1688300x225.jpg)
+![Área del Domaine de la Lande en Montbazillac](img_1688300x225.jpg)
 
 **De regreso a casa**
 

@@ -1,6 +1,6 @@
 # San Sebastián en AC
 
-![](img_2294.jpg)
+![La playa con nieve y al fondo el ayuntamiento](img_2294.jpg)
 
 **La playa con nieve y al fondo el ayuntamiento**
 
@@ -8,9 +8,9 @@ San Sebastián es un destino apetecible, bien sea para una escapada de fin de se
 
 Los atractivos que ofrece San Sebastián satisfacen a través de todos los sentidos. La perspectiva que ofrece la bahía de la Concha desde diferentes lugares de observación como Igueldo al que se accede en un pintoresco funicular que parte de Ondarreta en un lugar cercano al Peine del Viento, conjunto arquitectónico que simboliza los elementos de la naturaleza: la tierra, el fuego, el viento y el agua. Un lugar privilegiado para contemplar el mar y recuperar el equilibrio emocional donde el horizonte y el mar se funden con el arte que expresa la obra de Chillida.
 
-![](laconcha300x221.jpg)
+![La Concha desde el palacio de Miramar](laconcha300x221.jpg)
 
-![](img_0065300x225.jpg)
+![En bicicleta delante de "Espacio Vacío" de Oteiza](img_0065300x225.jpg)
 
 **La Concha desde el palacio de Miramar**
 
@@ -30,7 +30,7 @@ Entre el puerto y el Paseo Nuevo parten varios caminos que nos llevan al monte U
 
 Una oferta turística interesante es el paseo por la costa a bordo del catamarán “Ciudad de San Sebastián” que se toma en el muelle del puerto.
 
-![](img_0040300x225.jpg)
+![Urgull y Alderdi Eder desde el Pico del Loro](img_0040300x225.jpg)
 
 **Urgull y Alderdi Eder desde el Pico del Loro**
 
@@ -42,7 +42,7 @@ La parte vieja es también un lugar de culto que además de ser guardiana de las
 
 También se encuentra el museo de San Telmo, recientemente abierto después de un largo período de restauración y ampliación, cuyos fondos se exhiben en un convento dominico del siglo XVI en cuya iglesia, se encuentran expuestos los 11 grandiosos lienzos de Sert que narran historias de la vida de Guipúzcoa. La oferta museística de San Sebastián se completa con el acuario y, hasta hace poco tiempo, con el ahora cerrado por razones económicas, museo de Chillida Leku dedicado a la obra del escultor universal Eduardo Chillida.
 
-![](img_0072300x225.jpg)
+![Fachada del restaurante Urepel en el paseo de Salamanca](img_0072300x225.jpg)
 
 **Fachada del restaurante Urepel en el paseo de Salamanca**
 
@@ -84,11 +84,11 @@ Hay lugares que se deben evitar: el parking de la playa de la Zurriola por las q
 
 Otro lugar que se debe evitar es el parking de la playa de Ondarreta porque se aplica con rigor las limitaciones de estacionamiento para todos los vehículos, incluidos los fines de semana. Hay otros lugares en los barrios periféricos que, siempre que se haga un uso racional del estacionamiento, no creará problemas el estacionamiento y la pernocta.
 
-La zona de estacionamiento libre del campus y  donde era frecuente encontrar autocaravanas estacionadas se  ha delimitado como zona de estacionamiento en rotación (OTA u ORA). Los estacionamientos del campus permites estancias de hasta cinco horas o más (Con la tarifa II aplicable a las autocaravanas) por 2,60€.
+La zona de estacionamiento libre del campus y  donde era frecuente encontrar autocaravanas estacionadas se  ha delimitado como zona de estacionamiento en rotación (OTA u ORA). Los estacionamientos del campus permites estancias de hasta cinco horas o más (Con la tarifa II aplicable a las autocaravanas) por 2,60€.
 
 El horario de aplicación va de 9:00 a 13:30 y de 15:30 a 20:00 horas de lunes a viernes, los fines de semana y festivos es gratuito. Salvo los meses de vacaciones en la Universidad no es recomendable utilizar estas plazas para pernoctar.
 
-![](img_0032300x225.jpg)
+![Área de autocaravanas de Berio](img_0032300x225.jpg)
 
 **Área de autocaravanas de Berio**
 
@@ -96,7 +96,7 @@ El horario de aplicación va de 9:00 a 13:30 y de 15:30 a 20:00 horas de lunes a
 
 San Sebastián dispone de un área para autocaravanas con 44 plazas y un área de servicio en Berio. Esta área tiene una tarifa similar a las de larga duración del centro: 6 euros en verano y 3 euros en el resto del año. Está vigilada por agentes de la OTA y se paga mediante una máquina que expende tickets. El tiempo de estancia máximo, que solo se aplica con rigor en verano, es de 48 horas y no se permite, aunque se tolera cuando hay discreción, el despliegue de elementos. Debido a la proximidad de vecinos y la posibilidad de quejas el ruido, la polución visual o el escándalo son las causas más frecuentes del rechazo. En el uso del área para autocaravanas de Berio, en San Sebastián es el sentido común y el respeto al entorno la guía más importante para un correcto disfrute.
 
-Recientemente se ha abierto un nuevo estacionamiento en el paseo de Miramón, junto a la plaza de toros de Illumbe,. Es un amplio parking con más de 150 plazas que permanece vacío la mayor parte del tiempo. En él, bajo los tableros de las vías de acceso a la ciudad desde el corredor del Urumea, se ha construido un una nueva área de servicios para autocaravanas. (Ver mapa de San Sebastián).
+Recientemente se ha abierto un nuevo estacionamiento en el paseo de Miramón, junto a la plaza de toros de Illumbe,. Es un amplio parking con más de 150 plazas que permanece vacío la mayor parte del tiempo. En él, bajo los tableros de las vías de acceso a la ciudad desde el corredor del Urumea, se ha construido un una nueva área de servicios para autocaravanas. (Ver mapa de San Sebastián).
 
 El parking es gratuito, tiene una ligera pendiente y está algo alejado del centro, pero es una alternativa cuando el resto de la población está lleno de vehículos como ocurre en verano. No tiene limitaciones para el estacionamiento y únicamente es necesario tener en cuenta los eventos que se celebran en la plaza de toros o en Anoeta. No impiden estacionar pero la demanda puede ocasionar molestias así como algo de “ambiente” que puede haber los fines de semana.
 

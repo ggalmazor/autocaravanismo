@@ -1,6 +1,7 @@
 # Carcaixent
+## 2009, julio
 
-![](img_3902.jpg)
+![Senderismo por las cumbres de Carcaixent](img_3902.jpg)
 
 **Senderismo por las cumbres de Carcaixent**
 
@@ -8,9 +9,9 @@ Mi pareja y yo somos poco partidarios de las quedadas. Asistimos como mucho a un
 
 En las quedadas cada uno da lo mejor de sí mismo y satisface además el espíritu gregario de la  persona. Compartir la comida y las ideas, incluso hablar de problemas y sus reivindicaciones son situaciones que nos acercan a los compañeros como personas.
 
-![](carcaixent300x269.jpg)
+![Visión de Google de Carcaixent y el área](carcaixent300x269.jpg)
 
-![](img_3921300x225.jpg)
+![Un área con los estacionamientos en terrazas](img_3921300x225.jpg)
 
 **Visión de Google de Carcaixent y el área**
 
@@ -30,4 +31,4 @@ A Carcaixent se puede acceder desde el área en bicicleta por un camino asfaltad
 
 Ciudad de la seda y la naranja tiene distinción de haber sido la población en la que se plantó el primer naranjo para su comercialización, actividad que permitió el desarrollo de una de las bases de la economía de la Comunidad, por iniciativa del párroco Monzó a finales del siglo XIX.
 
-La disposición de este espacio para autocaravanas se produce gracias a la iniciativa de los compañeros valencianos y, sobre todo, a la sensibilidad y visión de sus regidoresque  justifica haber hecho 1.200 kilómetros para disfrutar de una escapada en una agradable compañía y con la perspectiva en el futuro de volver a disfrutarla y ampliarla aprovechando las infraestructuras para el turismo en autocaravana creadas en la CCAA Valenciana, en especial la de Morella y el impagable complemento de las bodegas integradas en España Discovery.
+La disposición de este espacio para autocaravanas se produce gracias a la iniciativa de los compañeros valencianos y, sobre todo, a la sensibilidad y visión de sus regidoresque  justifica haber hecho 1.200 kilómetros para disfrutar de una escapada en una agradable compañía y con la perspectiva en el futuro de volver a disfrutarla y ampliarla aprovechando las infraestructuras para el turismo en autocaravana creadas en la CCAA Valenciana, en especial la de Morella y el impagable complemento de las bodegas integradas en España Discovery.

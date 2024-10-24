@@ -1,20 +1,21 @@
 # En autocaravana por Cascante y aledaños
+## 2010, 3 noviembre - 15 noviembre
 
-![](pb031123300x200.jpg)
+![Atardecer en el parking del Termolúdico](pb031123300x200.jpg)
 
 **Atardecer en el parking del Termolúdico**
 
 Cascante es un población de poco más de cuatro mil habitantes situada cerca de muchos lugares y en medio de otros tantos. Una población, en suma, a la que vale la pena acudir desde un punto de vista turístico, que está más cerca de lo que parece y que constituye un enclave desde el cual es ideal para descubrir un interesante patrimonio histórico, un paisaje peculiar y una gastronomía basada en los productos de la tierra.
 
-![](pb151352300x200.jpg)
+![El Moncayo nevado desde el parking del Termolúdico](pb151352300x200.jpg)
 
-![](pb151356300x200.jpg)
+![Por la Vía Verde del Tarazonica hasta Tarazona](pb151356300x200.jpg)
 
-![](pb061159300x200.jpg)
+![Girola y ábside del Monasterio de Fitero](pb061159300x200.jpg)
 
-![](pb061164300x200.jpg)
+![Parking exterior del Monasterio de Piedra en otoño](pb061164300x200.jpg)
 
-![](pb151366300x200.jpg)
+![Una vista de Tarazona](pb151366300x200.jpg)
 
 **El Moncayo nevado desde el parking del Termolúdico**
 

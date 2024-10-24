@@ -1,6 +1,7 @@
-# Marruecos 2006
+# Marruecos
+## 2006, 20 enero - 10 febrero
 
-![](pict4502.JPG)
+![Un paisaje lunar](pict4502.JPG)
 
 **Febrero 2006**
 
@@ -8,7 +9,7 @@
 
 Los protagonistas: dos jóvenes jubilados, Charo y Arsenio que pasan algo de los sesenta, y una autocaravana Moncayo Nova Pulsar del 2002 (Fiat Ducatto 2,8 JTD) que cuando partió de Tánger el 20 de Enero tenía 70.131 Kmtrs. Y cuando regresamos al mismo punto, el 11 de Febrero, el cuentakilómetros marcaba 73.019. Hemos recorrido 2.888 kilómetros sin contar los otros 2 mil largos desde nuestro domicilio a Tarifa y regreso.
 
-![](pict4266300x222.jpg)
+![Con Ahmed, el guía, al fondo la medina de Fez](pict4266300x222.jpg)
 
 Hemos comprobado que Marruecos es un país de contrastes. Paisajes que van desde el verde de los campos de trigo recién nacido y de los palmerales de las cuencas de los ríos Draá, Ziz y Todrá hasta los grandes pasos de montaña del Alto y Medio Atlas y de los Montes Sarhro, las dunas del Erg Chebbi hasta el inmenso desierto de piedra.
 
@@ -58,7 +59,7 @@ En las medinas la solicitud de un regalo es algo constante, y no basta con el pa
 
 Es cierto que hay una gran necesidad social. Si nos sentimos inclinados a ayudar, hay cauces más adecuados, como las ONGs que operan en el país o los centros de enseñanza y de atención médica, que seguramente estarán encantados de recibir donativos.
 
-![](pict4260300x222.jpg)
+![Yacimiento arqueológico de Volúbilis](pict4260300x222.jpg)
 
 **Preparando el paso del Estrecho en Algeciras (20.01.2006)**
 
@@ -86,11 +87,11 @@ Continuamos viaje con la visita a Mulay Idriss y por una estrecha carretera lleg
 
 Compramos algunas verduras a un vendedor ambulante en la carretera para comprobar poco después que lo mismo cuesta tres veces menos en el supermercado de Fez.
 
-![](pict4269300x222.jpg)
+![Artesanía local.](pict4269300x222.jpg)
 
-![](pict4287300x222.jpg)
+![Los curtidores del zoco en Fez](pict4287300x222.jpg)
 
-![](pict4319300x222.jpg)
+![Una grúa para todo.](pict4319300x222.jpg)
 
 **Artesanía local.**
 
@@ -132,7 +133,7 @@ Después de consultar con Europ assistance y Jorge García de Boker Segur, llama
 
 Continuamos el camino hacia el sur pasando por Erfoud donde, según sus propios habitantes, se producen los mejores dátiles de Marruecos y llegamos a las dunas del Erg Chebbi en Merzouga a través de Rissani.
 
-![](pict4389300x222.jpg)
+![Caminando por las dunas del Erg Chevi.](pict4389300x222.jpg)
 
 **Caminando por las dunas del Erg Chevi.**
 
@@ -172,7 +173,7 @@ El camping “Atlas”, cuesta100 DH con el desayuno. Nos dirigimos a las gargan
 
 Un largo paseo por la carretera nos lleva hasta el nuevo albergue camping “Le Festival” a dos kilómetros de la “Petite  Gorge” que sirve de base para treeking y escalada.
 
-![](pict4475300x222.jpg)
+![Zagora desde el Jbel Zagora, Qued Draa](pict4475300x222.jpg)
 
 **Ourzazate (30.01.2006)**
 
@@ -198,9 +199,9 @@ El inevitable guía que nos ha conducido al parking nos cobra sus servicios llev
 
 Regresamos hacia Ouarzazate atravesando otra vez el Tizi-n-Tiniffift con la intención de llegar hasta Aït Benhaddou, donde nos alojamos en el patio del café Auberge Fouddoud mientras las montañas del Alto Atlas se iluminan al anochecer en la lejanía.
 
-![](pict4509300x222.jpg)
+![Ksar de Aït-Ben-Haddou](pict4509300x222.jpg)
 
-![](pict4513300x222.jpg)
+![Por el impresionante Tzi-n-Tichka](pict4513300x222.jpg)
 
 **Ksar de Aït-Ben-Haddou**
 
@@ -220,9 +221,9 @@ Continuamos el camino hacia la Casbah de Tamdaght, distante a siete kilómetros,
 
 Pasamos el impresionante Tizi-n-Tichka, que había estado cerrado un par de días. La carretera está despejada aunque hay tramos con nieve y hielo. Llegamos a Marrakech sobre las tres de la tarde y nos alojamos en un parking vigilado cerca del minarete de la Koutoubia.
 
-![](pict4544300x222.jpg)
+![Danzantes en la plaza Djemaa El-Fnag](pict4544300x222.jpg)
 
-![](pict4582300x222.jpg)
+![Las cabras subidas al los arganieres.](pict4582300x222.jpg)
 
 **<Danzantes en la plaza Djemaa El-Fnag**
 
@@ -258,7 +259,7 @@ El argán (Argania spinosa L) es un árbol endémico de la zona de Essaouira y A
 
 A media tarde llegamos a Ida Ourgoud a 18 kilómetros de Essaouira y nos alojamos en el camping “Le Calme”, excelentemente preparado en un arganier y el entorno y las instalaciones hacen honor a su nombre.
 
-![](pict4586300x222.jpg)
+![La playa de Essaouira](pict4586300x222.jpg)
 
 **La playa de Essaouira**
 
@@ -276,9 +277,9 @@ Essaouira es una bonita ciudad costera con una medina muy bien dotada y conserva
 
 Son las siete y media y el termómetro marca casi diecinueve grados. Partimos hacia Casablanca por la carretera de la costa atravesando Safi y El Jadida, el paisaje es fantástico. Los arenales de las playas se alternan con franjas cultivadas donde se ven grandes cosechas. Los bosques de argán dan paso a los pinos y éstos al monte bajo y la jara. Todo está verde y se ven descargar grandes cantidades de tomates, nabos, cebollas y zanahorias. La carretera es aceptable y la circulación escasa. Llegamos a Casa sobre las cuatro y media de la tarde y nos alojamos en el camping “El Oasis”.
 
-![](pict4603222x300.jpg)
+![Grandioso](pict4603222x300.jpg)
 
-![](pict4654222x300.jpg)
+![Rabat, Mausoleo de Hassan](pict4654222x300.jpg)
 
 **Grandioso**
 
@@ -316,7 +317,7 @@ Visitamos el museo arqueológico. Un pequeño museo poco dotado de medios que ex
 
 Continuamos el viaje y llegamos a Asilah. El parking de la muralla está vacío, nos situamos en una campa frente al puerto junto a una docena de autos. Nos comentan que hacía una semana que cerca de doscientas autos han organizado tal atasco que las autoridades locales han prohibido pernoctar en la muralla.
 
-![](pict4679300x222.jpg)
+![Parking de Asilah, han echado a las autocaravanas](pict4679300x222.jpg)
 
 **Parking de Asilah, han echado a las autocaravanas**
 
@@ -334,7 +335,7 @@ Llegamos a las ocho de la noche a Tarifa donde pernoctamos en una de las calles 
 
 Estamos fascinados por el viaje, solo tenemos claro una cosa: queremos volver para pasar mas tiempo en unas fechas cuyo clima sea mas propicio.
 
-![](img_0552.jpg)
+![Vida en las montañas plegadas del Atlas](img_0552.jpg)
 
 ![](marruecos2010.jpg)
 

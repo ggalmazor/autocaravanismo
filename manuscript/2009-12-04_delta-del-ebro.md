@@ -1,6 +1,7 @@
 # Delta del l’Ebre
+## 2009, 4 diciembre - 8 diciembre
 
-![](img_4099.JPG)
+![Atardecer en el Delta](img_4099.JPG)
 
 **Atardecer en el Delta**
 
@@ -20,7 +21,7 @@ Los campos inundados y las lagunas acogen numerosas aves que pasan el invierno e
 
 La llanura del terreno, los caminos para bicicletas y las carreteras con pocos obstáculos y una circulación razonable, así como los parajes protegidos, hacen del territorio un lugar ideal para el senderismo, la bicicleta en contacto con la naturaleza.
 
-![](img_4177.JPG)
+![Casa de la Fusta, punto de información del parque.](img_4177.JPG)
 
 **Casa de la Fusta, punto de información del parque.**
 
@@ -42,13 +43,13 @@ Hay un área para autocaravanas en Els Muntells, dispone de un acceso a las alca
 
 También se puede vaciar en la estación de servicio CEPSA de Sant Jaume d’Enveja, Avda. Catalunya, 208, 40º42’22,34’’N / 0º43’43,29’’E, dispone de rejilla para el vertido de agua procedente del lavado de coches, váter exterior y grifo de agua limpia.
 
-![](img_4132.JPG)
+![Cormoranes en la bahía de les Alfacs, junto a las salinas.](img_4132.JPG)
 
 **Gastronomía**
 
 Como es lógico, la gastronomía local se basa en los arroces, negro (con sepia en su tinta), a banda, caldoso, paellas, etc. Los mariscos del Delta son excelentes en especial los langostinos, las ostras, mejillones.
 
-Hay una abundante y excelente oferta de restauración, nosotros probamos y podemos recomendar Can Machino, en Major, 129 de Els Muntells. Anguila amb suc, deliciosa bien especiada, arroz negre, cafés y vino para dos personas 38,00 euros. También tiene una justa fama el Restaurante l’Estany, situado al lado de la Casa de la Fusta, que cultiva la cocina local tradicional, destino de muchos autocaravanistas.
+Hay una abundante y excelente oferta de restauración, nosotros probamos y podemos recomendar Can Machino, en Major, 129 de Els Muntells. Anguila amb suc, deliciosa bien especiada, arroz negre, cafés y vino para dos personas 38,00 euros. También tiene una justa fama el Restaurante l’Estany, situado al lado de la Casa de la Fusta, que cultiva la cocina local tradicional, destino de muchos autocaravanistas.
 
 Los mejillones y las deliciosas almejas (20,00€ el kilo) las compramos en la depuradora que hay en la carretera de Sant Carles a Poble Nou, 40º37’35’’N / 0º37’54’’E.
 

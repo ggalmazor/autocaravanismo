@@ -1,4 +1,5 @@
 # El Mediterráneo en autocaravana
+## 2012, 30 mayo - 8 junio
 
 ![](800pxcorbita_bm_gr18503432300x171.jpg)
 
@@ -6,7 +7,7 @@ Salimos después de nueve meses en el dique seco debido a una enfermedad y una d
 
 Tomamos el camino con la intención de llegar al Mediterráneo en busca de sol y buen tiempo. Como no tenemos prisa, decidimos realizar la primera etapa en la recientemente inaugurada área de Falces.
 
-![](monasterioderueda169x300.jpg)
+![Torre mudéjar del Monasterio de Rueda](monasterioderueda169x300.jpg)
 
 **Falces, 28 de mayo.**
 
@@ -24,21 +25,21 @@ Hemos pasado en varias ocasiones por las inmediaciones del monasterio dejando pe
 
 Es notable que situación del monasterio junto a un tramo del río Ebro, en aquél tiempo navegable. La restauración de las estructuras del acueducto y de la noria nos dan una idea de la economía de la región en la edad media.
 
-Soportamos el ataque desaforado de una miríada de mosquitos de lo más agresivo a pesar de todos los repelentes con que nos embadurnamos y que, según nos indicaron en la portería del monasterio, hacía cuatro días habían invadido el lugar. Gastamos un tubo de crema con corticoide para mitigar el picor de los habones que nos produjeron los muy malditos.
+Soportamos el ataque desaforado de una miríada de mosquitos de lo más agresivo a pesar de todos los repelentes con que nos embadurnamos y que, según nos indicaron en la portería del monasterio, hacía cuatro días habían invadido el lugar. Gastamos un tubo de crema con corticoide para mitigar el picor de los habones que nos produjeron los muy malditos.
 
 Llegamos al anochecer al área de Ascó, bien diseñada con un borne de servicios cómodo y limpio. Dormimos bien a pesar de que el área está situada al borde la carretera y junto a las vías del tren.
 
-![](paseomaritimocambrils300x169.jpg)
+![Paseo marítimo de Cambrils](paseomaritimocambrils300x169.jpg)
 
-![](camperareamontroig300x169.jpg)
+![Camper Park de Mont Roig](camperareamontroig300x169.jpg)
 
-![](observatorioavesdeltaebro300x169.jpg)
+![Observatorio de aves en el Delta del Ebro](observatorioavesdeltaebro300x169.jpg)
 
 Cambrils, 30, 31 de mayo y 1, 5 y 6 de junio.
 
 **Paseo marítimo de Cambrils**
 
-Llegamos al Camper Park “Las Moreras” en Mont Roig por la tarde. Se trata de una parte del camping  Miami Playa. La zona para autocaravanas está situada en la parte más próxima a la playa, una cala con bastante piedra, pero apta para un baño con precaución y, como es lógico, para tomar el sol. Las parcelas disponen de un pequeño arbolado y el suelo es de hierba.
+Llegamos al Camper Park “Las Moreras” en Mont Roig por la tarde. Se trata de una parte del camping  Miami Playa. La zona para autocaravanas está situada en la parte más próxima a la playa, una cala con bastante piedra, pero apta para un baño con precaución y, como es lógico, para tomar el sol. Las parcelas disponen de un pequeño arbolado y el suelo es de hierba.
 
 El área es sombreada, llana y los accesos adaptados a las autocaravanas, las parcelas abundantes y el camping, familiar y tranquilo, está limpio así como las instalaciones comunes. Cada parcela dispone de suministro de agua y toma de electricidad, incluido en el precio. También está incluido en el precio el uso de las instalaciones generales.
 
@@ -58,11 +59,11 @@ El día 1 de junio marchamos al Delta pero regresamos el 5 huyendo de los mosqui
 
 Llegamos al área del restaurante l’Estany, junto a la casa de Fusta y nos encontramos que una buena parte del área estaba ocupada por un grupo de autocaravanistas catalanes. Nos acomodamos según lo previsto y pernoctamos el sábado. Al día siguiente salimos a dar la consabida vuelta en bicicleta a la laguna de la Encanyzada. Comimos en el restaurante, después de saludar a Luis, su propietario. Dos raciones de un más que notable arroz con pato y una ración de almejas con alcachofas, con una buena garnacha y café nos costaron 45,00€.
 
-![](playatrabucador300x169.jpg)
+![Playa Trabucador](playatrabucador300x169.jpg)
 
-![](prohibidoperrosautocaravanas300x169.jpg)
+![Prohibiciones ilegales en Riumar (Deltebre)](prohibidoperrosautocaravanas300x169.jpg)
 
-![](apesardetodoriumar300x169.jpg)
+![A pesar de todo en Riumar (Delta del Ebro)](apesardetodoriumar300x169.jpg)
 
 
 
@@ -70,7 +71,7 @@ Llegamos al área del restaurante l’Estany, junto a la casa de Fusta y nos enc
 
 **Playa Trabucador**
 
-El domingo, pasamos el día en la playa del Trabucador, un poco agobiados por el calor y los mosquitos, decidimos pernoctar en el parking de la escuela de kiteboard “muchokite”. Había varias autos alemanas y francesas que nos informaron que no había problemas para hacerlo. Descansamos en un lugar privilegiado. Al día siguiente nos desplazamos en bicicleta a lo largo de la barra de Trabucador hasta La Banya.
+El domingo, pasamos el día en la playa del Trabucador, un poco agobiados por el calor y los mosquitos, decidimos pernoctar en el parking de la escuela de kiteboard “muchokite”. Había varias autos alemanas y francesas que nos informaron que no había problemas para hacerlo. Descansamos en un lugar privilegiado. Al día siguiente nos desplazamos en bicicleta a lo largo de la barra de Trabucador hasta La Banya.
 
 **Prohibiciones ilegales en Riumar (Deltebre)**
 
@@ -78,25 +79,23 @@ Nos informaron que la colonia de flamencos se desplazaba a diario hasta el estan
 
 **A pesar de todo en Riumar (Delta del Ebro)**
 
-Cuando llegamos al paseo marítimo nos encontramos unas señales que indicaban que estaba prohibido estacionar autocaravanas. Las señales eran dudosamente legales. No había ninguna otra señal prohibitoria ni en Deltebre ni  en Poblenou, por lo que dedujimos que era posible que no hubiera una Ordenanza Municipal y podríamos afrontar una denuncia por aparcamiento indebido. Además a ambos tripulantes se nos despertó el espíritu guerrero y decidimos que no se lo íbamos a poner fácil a ningún agente de la autoridad que pretendiera echarnos del lugar. Nos quedamos al final del paseo marítimo en compañía de dos autocaravanas más.
+Cuando llegamos al paseo marítimo nos encontramos unas señales que indicaban que estaba prohibido estacionar autocaravanas. Las señales eran dudosamente legales. No había ninguna otra señal prohibitoria ni en Deltebre ni  en Poblenou, por lo que dedujimos que era posible que no hubiera una Ordenanza Municipal y podríamos afrontar una denuncia por aparcamiento indebido. Además a ambos tripulantes se nos despertó el espíritu guerrero y decidimos que no se lo íbamos a poner fácil a ningún agente de la autoridad que pretendiera echarnos del lugar. Nos quedamos al final del paseo marítimo en compañía de dos autocaravanas más.
 
 **Riumar, 4 de junio.**
 
 Nadie nos incordió, así que un poco agobiados por el calor, decidimos regresar al Camper Park de Mont Roig, no sin antes de aprovisionarnos de anguila ahumada en Deltebre.
 
-![](enbicicletaencompaia300x169.jpg)
-
 Decidimos también ir a Vic a revisar la centralita de la autocaravana que nos estaba fallando, por lo que cambiamos el rumbo sur por el norte.
 
-![](josepdeartcava300x169.jpg)
+![Josep el anfitrión.](josepdeartcava300x169.jpg)
 
-![](platjadaro300x169.jpg)
+![Platja d'Aro llena de autocaravanas](platjadaro300x169.jpg)
 
 **Avignonet, 7 de junio.**
 
 **Josep el anfitrión.**
 
-De camino para Vic hicimos una etapa en el área del viñedo de Art Cava en Avignonet. El lugar es magnífico, con la vista en el horizonte de Montserrat y una extensión enorme de viñedos en la comarca de El Penedés,  la cuna del cava. El área dispone de un punto limpio para el tratamiento ecológico de residuos y suministro de agua limpia y un hermoso parking a la sombra de unos cipreses.
+De camino para Vic hicimos una etapa en el área del viñedo de Art Cava en Avignonet. El lugar es magnífico, con la vista en el horizonte de Montserrat y una extensión enorme de viñedos en la comarca de El Penedés,  la cuna del cava. El área dispone de un punto limpio para el tratamiento ecológico de residuos y suministro de agua limpia y un hermoso parking a la sombra de unos cipreses.
 
 Josep, el anfitrión, nos dio una lección magistral sobre la elaboración del cava. Se trata de un gran viñedo de las variedades macabeo, parellada y xarel.lo; también cultivan chardonnay. La cava tiene una pequeña producción artesanal que se vende en su mayor parte en la propiedad. Según nos indicó Josep la producción se adapta a la más pura tradición artesanal permitiéndonos catar las especialidades de la bodega. Compramos una caja de los productos más aequibles.
 
@@ -116,9 +115,9 @@ Platja d’Aro es una bonita población con una hermosa playa y un paseo maríti
 
 Salimos el día 9 hacia Ripoll con una para en Banyolas, junto al lago, para darle la vuelta en bicicleta y comer.
 
-![](claustromonasterioripoll300x169.jpg)
+![Claustro del monasterio de Ripoll](claustromonasterioripoll300x169.jpg)
 
-![](porlaviaverdedelhierro300x169.jpg)
+![Por la Vía Verde del Hiero y del Carbón](porlaviaverdedelhierro300x169.jpg)
 
 **Ripoll, 10 de junio.**
 

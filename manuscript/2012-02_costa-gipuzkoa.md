@@ -1,6 +1,7 @@
 # La costa de Gipuzkoa.
+## 2012, febrero
 
-![](parkinghondarribia.jpg)
+![Parking de Hondarribia 2009](parkinghondarribia.jpg)
 
 **Parking de Hondarribia 2009**
 
@@ -10,7 +11,7 @@ Este trabajo está dedicado a todos los autocaravanistas que se plantean visitar
 
 No conozco personalmente todos los lugares así que no puedo garantizar la certeza de los datos que es necesario recopilar de otras fuentes por lo que agradecería cualquier información complementaria que sirva para ayudar a los compañeros que nos visitan.
 
-![](img_0115300x225.jpg)
+![Parking de la playa de Hondarribia (Salida sidrera club Sorbeltz de 2010)](img_0115300x225.jpg)
 
 **Hondarribia**
 
@@ -42,7 +43,7 @@ Los alrededores de Hondarribia también tienen un interés especial que justific
 
 El cabo Higuer con dos miradores sobre la costa Labortana. El fuerte de Guadalupe en el monte Jaizkibel junto a las ruinas del castillo de San Telmo, testigos mudos de la importancia militar de la zona fronteriza, y al lado, el santuario de Nuestra Señora de Guadalupe.
 
-![](img_0125300x225.jpg)
+![Parking de la playa de Orio](img_0125300x225.jpg)
 
 **Orio**
 

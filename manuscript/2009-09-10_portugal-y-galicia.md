@@ -1,6 +1,7 @@
 # Portugal y Galicia.
+## 2009, 10 septiembre - 4 octubre
 
-![](img_3695.JPG)
+![Puesta de sol en la playa de Coria en Portosín](img_3695.JPG)
 
 Puesta de sol en la playa de Coria en Portosín
 
@@ -14,7 +15,7 @@ Por ello no podemos sino relatar lo que hemos visto desde el comienzo y, sobre t
 
 Queremos agradecer a Conchi y Toño por su ayuda para conocer los recursos logísticos de Portugal y por sus indicaciones sobre los lugares a visitar.
 
-![](img_3128300x225.jpg)
+![Iglesia octogonal de los templarios en Torres del Río (Na)](img_3128300x225.jpg)
 
 Iglesia octogonal de los templarios en Torres del Río (Na)
 
@@ -32,7 +33,7 @@ Después de comer nos desplazamos hasta Logroño. Estacionamos en el parking del
 
 Pernocta: Logroño, parking gratuito del ferial, 42º28’29,77’’N / 2º27’15,21’’W, junto al parque deportivo de Las Norias, en la margen izquierda del Ebro. Se trata de un amplio espacio cubierto por plátanos de porte alto.
 
-![](img_3137300x225.jpg)
+![Camino de sirga del Canal de Castilla](img_3137300x225.jpg)
 
 **Camino de sirga del Canal de Castilla**
 
@@ -46,7 +47,7 @@ Al día siguiente visitamos por fin la catedral de San Antolín, después de dos
 
 Nos desplazamos hasta Baños de Cerrato para visitar la iglesia visigoda de San Juan de Baños. Construida en el S VII. Cabe destacar la armonía de las tres naves con arcos de herradura apoyados sobre columnas clásicas con capiteles decorados y la simpleza de las líneas, así como la decoración geométrica del friso y el pórtico de arco en herradura con una cruz esculpida en la clave.
 
-![](img_3197300x225.jpg)
+![Observatorio de aves en los Arribes del Duero (Aldedávila)](img_3197300x225.jpg)
 
 **Parque de recreo en los Arribes del Duero (Aldedávila)**
 
@@ -62,7 +63,7 @@ Salimos en bicicleta hasta el mirador de aves por unos caminos de tierra y piedr
 
 Una comida en el restaurante Rinconada de las Arribes, tabla de ibéricos, chuletón de morucha, postres, vino y café (42 €). Por la tarde damos un paseo hasta el Picón de Fermín y volvemos a la misma área para pernoctar.
 
-![](img_3265225x300.jpg)
+![Parking de acceso al castillo en Tomar](img_3265225x300.jpg)
 
 **Parking de acceso al castillo en Tomar**
 
@@ -82,9 +83,9 @@ Pernocta: Óbidos  39°21′22.97″N / 9° 9′25.63″W. Área privada de pago
 
 Para visitar Óbidos es necesario estacionar en el exterior de la plaza amurallada, hay varios parking para turismos de pago en los que no se permite estacionar AC. En las proximidades del acueducto es posible, en temporada baja, estacionar de forma gratuita aunque la pernocta es aconsejable hacerla en el área.
 
-![](img_3319225x300.jpg)
+![Faro del cabo Carboeiro en Peniche](img_3319225x300.jpg)
 
-![](img_3374300x225.jpg)
+![Claustro manuelino del monasterio de Baltalha](img_3374300x225.jpg)
 
 **Faro del cabo Carboeiro en Peniche**
 
@@ -112,7 +113,7 @@ Otro elemento destacable del conjunto del monasterio son las capillas inacabadas
 
 Pernocta: Batalha 39º39’40,88’’N / 8º49’29,64’’W. Se trata de un área gratuita para autocaravanas con doble bahía en el área de servicios con un borne “Euro Relais”.
 
-![](img_3414300x225.jpg)
+![Parking para autocaravanas en Costa Nova do Prado (Aveiro)](img_3414300x225.jpg)
 
 **Figueira de Foz (18.09.2009)**
 
@@ -136,7 +137,7 @@ Dispone de váteres públicos y se permite el acceso a un imbornable del alcanta
 
 A la mañana siguiente un paseo a pié de un par de horas nos lleva a recorrer el pueblo y sus alrededores partiendo hacia Oporto no sin antes pasar por el área de servicios de Estarteja (40º45’12.91N / 8º34’05.31’’W), gratuito con un borne Euro Relais, donde vaciamos y llenamos depósitos más cómodamente que en Costa Nova.
 
-![](img_35011300x225.jpg)
+![Tendederos de ropa en Gaia (Oporto)](img_35011300x225.jpg)
 
 **Tendederos de ropa en Gaia (Oporto)**
 
@@ -154,7 +155,7 @@ Para hacer apetito continuamos el recorrido por un camino para bicicletas que no
 
 Después de comer nos dirigimos a un mayorista de vinos “Grossâo” 41º13’36,73’’N / 8º40’42,16’’W donde nos proveemos de unos excelentes reservas de denominación “Douro” de 2005 a un precio imbatible.
 
-![](img_3507225x300.jpg)
+![Puente sobre la ría en Exposende](img_3507225x300.jpg)
 
 **Puente sobre la ría en Exposende**
 
@@ -184,9 +185,9 @@ El camping dispone de comodidades aunque con terreno un poco inclinado y el suel
 
 **Pernocta: Viana do Castelo, 41º40’41.63’’N / 8º49’34.99’’W. Camping Orbitur**
 
-![](img_3553300x225.jpg)
+![Gaviotas sobre la playa de Coira en Portosín](img_3553300x225.jpg)
 
-![](img_3582300x225.jpg)
+![Navegar a vela no es tan complicado](img_3582300x225.jpg)
 
 **Gaviotas sobre la playa de Coira en Portosín**
 
@@ -212,7 +213,7 @@ A mediodía, atracamos en O Freixo y damos cuenta de unas fuentes de berberechos
 
 Pasamos otra noche tranquila en la playa de Coira, visita al mercado dominical de Noia donde compramos una pota de unos divinos garbanzos con callos (6 euros para seis personas) que damos cuenta en Coira en compañía de Dora y Pepe después de un último baño en la playa.
 
-![](img_3753225x300.jpg)
+![El cañón del Sil y la Rivera Sacra](img_3753225x300.jpg)
 
 **El cañón del Sil y la Rivera Sacra**
 
@@ -252,7 +253,7 @@ Nos desplazamos al parking situado en el área de recepción al lado del puente 
 
 01.10.2009. Noche tranquila a pesar de la proximidad de la carretera. Desde primera hora de la mañana acuden coches con usuarios de las piscinas termales y pronto se llena el parking.
 
-![](img_3796300x225.jpg)
+![Casa típica en Saldaña](img_3796300x225.jpg)
 
 **Astorga (01.10.2009)**
 
