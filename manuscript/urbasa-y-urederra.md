@@ -1,6 +1,6 @@
 # Urbasa y Urederra
 
- ![El Balcón de Pilatos, al fondo el nacimiento del río Urederra](resources/pict08131.JPG)
+![El Balcón de Pilatos, al fondo el nacimiento del río Urederra](resources/pict08131.JPG)
 
 **Otoño de 2009**
 
@@ -14,7 +14,7 @@ La altiplanicie con praderas y bosques, su clima, paisajes y la paz que se despr
 
 La ganadería es el principal motor de la economía de unos montes que pertenecen al pueblo navarro. Vacas, caballos, cerdos y ovejas pastando en libertad son los habitantes más numerosos de las praderas.
 
- ![Aquí comienza la vertiente mediterránea, al fondo las Ameskoas.](resources/pict0814300x222.jpg)
+![Aquí comienza la vertiente mediterránea, al fondo las Ameskoas.](resources/pict0814300x222.jpg)
 
 **Aquí comienza la vertiente mediterránea, al fondo las Ameskoas.**
 
@@ -28,7 +28,7 @@ Urbasa también es testigo de las batallas libradas durante la primera guerra Ca
 
 Urbasa es una formación kárstica que abarca una superficie de 30.000 ha, funciona como una esponja que recoge las abundantes aguas pluviales, propiciadas por el choque de los frentes atlánticos en su vertiente norte, y las vierte principalmente en la vertiente sur, en especial al río Urederra cuyo nacimiento se produce en una especie de “embudo”, en el fondo del valle.
 
- ![Saltado una cancela](resources/pict0819300x222.jpg)
+![Saltado una cancela](resources/pict0819300x222.jpg)
 
 **Saltado una cancela**
 
@@ -66,9 +66,9 @@ Para disfrutar de la sierra existe la posibilidad de pernoctar en el parking de 
 
 En los lugares de estacionamiento de la sierra, los fines de semana, a partir de las once de la mañana se van ocupando los mejores lugares por excursionistas que despliegan sus mesas y sillas para tomar el sol y pasar el día. Los usuarios de las autocaravanas, de la misma forma que los usuarios de los turismos pueden tomar posiciones en los lugares autorizados, desplegar los toldos, mesas y sillas para pasar el día. Cualquier lugar de la sierra es idóneo para hacer excursiones, tanto paseos a pié como en bicicleta.
 
- ![El balcón de Pilatos, observatorio de rapaces](resources/pict0813300x222.jpg)
+![El balcón de Pilatos, observatorio de rapaces](resources/pict0813300x222.jpg)
 
- ![Camino del nacimiento del río Urederra](resources/pict0829300x222.jpg)
+![Camino del nacimiento del río Urederra](resources/pict0829300x222.jpg)
 
 **El balcón de Pilatos, observatorio de rapaces**
 

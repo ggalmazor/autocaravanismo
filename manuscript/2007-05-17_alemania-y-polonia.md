@@ -1,5 +1,5 @@
 # Alemania y Polonia
-## 2007, 17 mayo - 7 junio
+**2007, 17 mayo - 7 junio**
 
 ![](img_0284.jpg)
 
@@ -7,7 +7,7 @@ Alemania es un país fascinante para un latino, su cultura y patrimonio históri
 
 Este viaje lo hemos preparado basándonos en los relatos de Pepe Hermo “Pepiño”en el verano de 2004 y de Iñaki Calvo “Bikote” en las mismas fechas de 2006 (Viajar en Autocaravana). Éste último tiene como objetivos principal visitar lugares de Alemania que han sido declarados Patrimonio de la UNESCO. También hemos incluido en el proyecto una breve visita a Polonia, un país, para nosotros exótico y misterioso que despierta nuestra curiosidad.
 
- ![Inmensos palacios y jardines](resources/img_0234300x225.jpg)
+![Inmensos palacios y jardines](resources/img_0234300x225.jpg)
 
 **Inmensos palacios y jardines**
 
@@ -19,7 +19,7 @@ La guía de Alemania, de Lonely Planet, ha servido de apoyo para la planificaci�
 
 Es imposible describir los lugares visitados con la maestría de Pepiño, Bikote y otros compañeros que hay publicado el relato de sus viajes con anterioridad en las diferentes web, por lo tanto nos limitaremos a describir el recorrido, los lugares de etapa y los recursos utilizados con la esperanza de que a otros compañeros les sea de utilidad en el futuro.
 
- ![Jardines y fuentes](resources/img_0243300x225.jpg)
+![Jardines y fuentes](resources/img_0243300x225.jpg)
 
 **Acercándonos al destino, 14.05.2007.**
 
@@ -33,7 +33,7 @@ Visitamos la catedral con la capilla original del palacio de Carlomagno, patrimo
 
 Aquisgrán ha tenido un papel preponderante en la historia de Europa. Situada cerca de las fronteras de Bélgica y Holanda fue convertida en una importante ciudad por Carlomagno instalando la capital del Imperio Franco a finales del S.VIII.
 
- ![Ambiente festivo en las calles de Colonia](resources/img_0046300x225.jpg)
+![Ambiente festivo en las calles de Colonia](resources/img_0046300x225.jpg)
 
 17.05.2007, En Köln amanece lloviendo, en el parking de la calle  Adam-Stegarwald-Strasse (50º57’03.29”N/6º59’27.63”E), donde nos alojamos sin problemas guiados por el relato de Pepiño.
 
@@ -51,7 +51,7 @@ A continuación tomamos el suburbano y nos desplazamos hasta los Herrenhäuser G
 
 Nuestra impresión es que Hannover es una ciudad que proporciona una alta calidad de vida a sus habitantes. Parques, servicios y jardines que hacen de ella una ciudad viva y participativa. Volvemos a disfrutar de una nueva noche tranquila en plena MittelStrasse.
 
- ![Integrar en el entorno al visitante](resources/img_0034225x300.jpg)
+![Integrar en el entorno al visitante](resources/img_0034225x300.jpg)
 
 20.05.2007. En Hildesheim aparcamos cerca de centro (52º8’19.42’’N/9º57’15’’E) y visitamos a bordo de nuestras bicicletas el núcleo comercial. La Markplatz felizmente reconstruida en 1980 cuyo único elemento original es una fuente situada frente al Rathauss. La St.Michaeliskirche, Patrimonio mundial de la UNESCO estaba cerrada al público por obras. De la visita a la Dom, destacan los impactantes bajorrelieves originales de la puerta, de 5 metros de altura que se salvaron milagrosamente del bombardeo aliado del 22 de marzo de 1945.
 
@@ -65,7 +65,7 @@ El parque es un extenso espacio situado al oeste de la ciudad donde se han const
 
 En el Altstadt se encuentran las puertas del S.XVIII y el pintoresco barrio holandés que lo forman algo mas de un centenar de viviendas de ladrillo rojo construidas por trabajadores de esta nacionalidad en el S.XVIII.
 
- ![En el interior de la cúpula del Bundestag](resources/img_0249225x300.jpg)
+![En el interior de la cúpula del Bundestag](resources/img_0249225x300.jpg)
 
 **En el interior de la cúpula del Bundestag**
 
@@ -81,7 +81,7 @@ No es suficiente con relatar las impresiones de los lugares visitados, la propia
 
 Una vez concluida la visita a Berlín nos desplazamos hasta Cottbus donde hay un extenso lugar de estacionamiento señalado en los POIs de CCinfos (51º45.345’N/14º19.012’E).
 
- ![La plaza central de Wroklaw](resources/img_0336300x225.jpg)
+![La plaza central de Wroklaw](resources/img_0336300x225.jpg)
 
 **La plaza central de Wroklaw**
 
@@ -105,7 +105,7 @@ Un poco mas al oeste está situado el barrio de judío Kazimierz, lugar donde se
 
 Tanto en Breslavia (Wroklaw) como en Cracovia (Krakow) las iglesias disponen de unos excelentes órganos y podemos comprobar que también de unos buenos intérpretes. Nos retiramos después de una comida en un restaurante del centro (22 euros con el café).
 
- ![Torres sobre el Vístula](resources/img_0344300x225.jpg)
+![Torres sobre el Vístula](resources/img_0344300x225.jpg)
 
 **Torres sobre el Vístula**
 
@@ -127,7 +127,7 @@ Su Altstadt conserva muchos edificios históricos, incluidas 17 torres y muralla
 
 Es particularmente interesante el cementerio situado, dentro de las murallas, encima del área para autocaravanas que integra las ruinas de una pequeña iglesia gótica y desde cuya posición se divisa un bonito panorama. Participamos de la fiesta, y nos retiramos cansados y alegres.
 
- ![Area para AC en Bamberg](resources/img_0393300x225.jpg)
+![Area para AC en Bamberg](resources/img_0393300x225.jpg)
 
 **Area para AC en Bamberg**
 
@@ -147,7 +147,7 @@ Visitamos el Kaiserburg, Lorenzkirche, Sebalduskirche, Hauptmakt y en conjunto u
 
 Comemos en plena plaza de la Hauptmark, salchichas, chucrut y patatas, ¡que escasos son los alemanes con el pan en las comidas! (24 euros). Regresamos a media tarde con tiempo suficiente para otro amplio paseo en bicicleta por el parque donde nos tumbamos a la bartola en la hierba.
 
- ![El ayuntamiento de Wüzburg](resources/img_0525225x300.jpg)
+![El ayuntamiento de Wüzburg](resources/img_0525225x300.jpg)
 
 **El ayuntamiento de Wüzburg**
 
@@ -171,7 +171,7 @@ Comemos en la auto y partimos para Wüzburg. Esta vez hacemos descansar al TomTo
 
 No nos convence para pernoctar el parking del Residentplatz en Wüzburg y gracias a los PDIs almacenados en el TomTom encontramos un área para autocaravanas a las orillas del Main. Esta área dispone de electricidad y agua fresca pero no de facilidades para vaciar las aguas grises ni las negras.
 
- ![Unos inmensos jardines](resources/img_0565300x225.jpg)
+![Unos inmensos jardines](resources/img_0565300x225.jpg)
 
 **Unos inmensos jardines**
 
@@ -189,7 +189,7 @@ A medida que nos acercamos a la ciudad se concreta la imponente mole del castill
 
 Nada más comer emprendemos el camino hasta Maulbronn. Estacionamos en un parking a la entrada de la carretera que conduce al monasterio (48º59.940’N/8º48.326’E).
 
- ![Los edificios de la abadía de Maulbronn](resources/img_0920300x225.jpg)
+![Los edificios de la abadía de Maulbronn](resources/img_0920300x225.jpg)
 
 **Los edificios de la abadía de Maulbronn**
 
@@ -205,7 +205,7 @@ La visita ha durado un par de horas. Partimos a continuación hacia Friburgo don
 
 Tomamos las bicicletas y visitamos el centro histórico en el que se aprecia el ambiente juvenil universitario. Hay varios edificios muy notables y la Dom es una iglesia gótica muy interesante. En conjunto Freiburg nos pareció una ciudad agradable e interesante en su conjunto. Comimos en la auto y completamos las jornada paseando en bicicleta por el parque próximo al área y descansando del ajetreo de los últimos días.
 
- ![Los restos de la abadía de Cluny](resources/img_1012300x225.jpg)
+![Los restos de la abadía de Cluny](resources/img_1012300x225.jpg)
 
 07.06.2007. Para el camino de regreso a casa teníamos proyectos y decidimos, ya que nos pillaba de camino, visitar Cluny, cuna de una de las culturas que mas influyeron en la alta edad media.
 

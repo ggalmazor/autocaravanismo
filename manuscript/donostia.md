@@ -1,6 +1,6 @@
 # San Sebastián en AC
 
- ![La playa con nieve y al fondo el ayuntamiento](resources/img_2294.jpg)
+![La playa con nieve y al fondo el ayuntamiento](resources/img_2294.jpg)
 
 **La playa con nieve y al fondo el ayuntamiento**
 
@@ -8,9 +8,9 @@ San Sebastián es un destino apetecible, bien sea para una escapada de fin de se
 
 Los atractivos que ofrece San Sebastián satisfacen a través de todos los sentidos. La perspectiva que ofrece la bahía de la Concha desde diferentes lugares de observación como Igueldo al que se accede en un pintoresco funicular que parte de Ondarreta en un lugar cercano al Peine del Viento, conjunto arquitectónico que simboliza los elementos de la naturaleza: la tierra, el fuego, el viento y el agua. Un lugar privilegiado para contemplar el mar y recuperar el equilibrio emocional donde el horizonte y el mar se funden con el arte que expresa la obra de Chillida.
 
- ![La Concha desde el palacio de Miramar](resources/laconcha300x221.jpg)
+![La Concha desde el palacio de Miramar](resources/laconcha300x221.jpg)
 
- ![En bicicleta delante de "Espacio Vacío" de Oteiza](resources/img_0065300x225.jpg)
+![En bicicleta delante de "Espacio Vacío" de Oteiza](resources/img_0065300x225.jpg)
 
 **La Concha desde el palacio de Miramar**
 
@@ -30,7 +30,7 @@ Entre el puerto y el Paseo Nuevo parten varios caminos que nos llevan al monte U
 
 Una oferta turística interesante es el paseo por la costa a bordo del catamarán “Ciudad de San Sebastián” que se toma en el muelle del puerto.
 
- ![Urgull y Alderdi Eder desde el Pico del Loro](resources/img_0040300x225.jpg)
+![Urgull y Alderdi Eder desde el Pico del Loro](resources/img_0040300x225.jpg)
 
 **Urgull y Alderdi Eder desde el Pico del Loro**
 
@@ -42,7 +42,7 @@ La parte vieja es también un lugar de culto que además de ser guardiana de las
 
 También se encuentra el museo de San Telmo, recientemente abierto después de un largo período de restauración y ampliación, cuyos fondos se exhiben en un convento dominico del siglo XVI en cuya iglesia, se encuentran expuestos los 11 grandiosos lienzos de Sert que narran historias de la vida de Guipúzcoa. La oferta museística de San Sebastián se completa con el acuario y, hasta hace poco tiempo, con el ahora cerrado por razones económicas, museo de Chillida Leku dedicado a la obra del escultor universal Eduardo Chillida.
 
- ![Fachada del restaurante Urepel en el paseo de Salamanca](resources/img_0072300x225.jpg)
+![Fachada del restaurante Urepel en el paseo de Salamanca](resources/img_0072300x225.jpg)
 
 **Fachada del restaurante Urepel en el paseo de Salamanca**
 
@@ -88,7 +88,7 @@ La zona de estacionamiento libre del campus y  donde era frecuente encontrar aut
 
 El horario de aplicación va de 9:00 a 13:30 y de 15:30 a 20:00 horas de lunes a viernes, los fines de semana y festivos es gratuito. Salvo los meses de vacaciones en la Universidad no es recomendable utilizar estas plazas para pernoctar.
 
- ![Área de autocaravanas de Berio](resources/img_0032300x225.jpg)
+![Área de autocaravanas de Berio](resources/img_0032300x225.jpg)
 
 **Área de autocaravanas de Berio**
 

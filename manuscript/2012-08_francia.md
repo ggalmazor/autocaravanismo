@@ -1,7 +1,7 @@
 # Francia entre el mar, el Loira y sus castillos
-## 2012, agosto
+**2012, agosto**
 
- ![Castillo Real de Amboise](resources/img_1515300x225.jpg)
+![Castillo Real de Amboise](resources/img_1515300x225.jpg)
 
 **Castillo Real de Amboise**
 
@@ -11,9 +11,9 @@ Los castillos del Loira es un objetivo turístico de culto para los autocaravani
 
 Cuando se utiliza una autocaravana para viajar y el tiempo no es un bien escaso, es posible añadir el propio viaje al objetivo. Uno de los atractivos de la autocaravana es convertir la ida y el regreso  en un componente más del propio objetivo.
 
- ![Área de Bicarrosse le Navarrosse](resources/img_1213300x225.jpg)
+![Área de Bicarrosse le Navarrosse](resources/img_1213300x225.jpg)
 
- ![Vista al puerto de Navarrosse en el lago](resources/img_1229300x225.jpg)
+![Vista al puerto de Navarrosse en el lago](resources/img_1229300x225.jpg)
 
 **Aquitania**
 
@@ -35,17 +35,17 @@ Arcachón pertenece al departamento de La Gironde, en el corazón de las Landas 
 
 Visitamos la ciudad a pié y en bicicleta paseando por una extensa playa con la arena fina característica del Atlántico.
 
- ![El mejor brioche de la historia](resources/img_1233300x225.jpg)
+![El mejor brioche de la historia](resources/img_1233300x225.jpg)
 
- ![Paraíso de mariscadores aficionados](resources/img_1253300x225.jpg)
+![Paraíso de mariscadores aficionados](resources/img_1253300x225.jpg)
 
- ![Fort Boyard](resources/img_1266300x225.jpg)
+![Fort Boyard](resources/img_1266300x225.jpg)
 
- ![Puente transbordador de Rochefort](resources/img_1288300x225.jpg)
+![Puente transbordador de Rochefort](resources/img_1288300x225.jpg)
 
- ![Museo de la Corderie](resources/img_1295300x225.jpg)
+![Museo de la Corderie](resources/img_1295300x225.jpg)
 
- ![La fragata Hermione](resources/img_1297300x225.jpg)
+![La fragata Hermione](resources/img_1297300x225.jpg)
 
 **La isla de Oleron y Rochefort-sur-la-mer**
 
@@ -89,11 +89,11 @@ Nos desplazamos también, entre nubes de mosquitos y a través de una pista acon
 
 El 21 de septiembre, viernes por la tarde, continuamos el viaje parando en el área de Sainte Maure de Touraine en el departamento de Indre et Loire (37) donde hacemos un descanso táctico. Se trata de un área gratuita, en un lugar bonito, simpático, tranquilo y seguro.
 
- ![Castillo de Angers](resources/img_1445300x225.jpg)
+![Castillo de Angers](resources/img_1445300x225.jpg)
 
 ![](img_1433300x298.jpg)
 
- ![Chimeneas de la cocina del monasterio de Fontevraud](resources/img_1394225x300.jpg)
+![Chimeneas de la cocina del monasterio de Fontevraud](resources/img_1394225x300.jpg)
 
 **La zona de Angers**
 
@@ -117,13 +117,13 @@ Al día siguiente nos desplazamos hasta Angers para visitar la ciudad y su impon
 
 La zona dispone de extensos caminos acondicionados para bicicletas en las orillas del Maine y nos llevan, por lado hasta Angers, por otro hasta Sainte Gemmes-sur-Loire y finalmente hasta Savenières y Bèuhard. Visitamos en estos pueblos unas pequeñas iglesias románicas muy interesantes. Permanecimos tres días.
 
- ![Castillo de Chambord](resources/img_1585300x225.jpg)
+![Castillo de Chambord](resources/img_1585300x225.jpg)
 
- ![Castillo de Amboise](resources/img_1530300x225.jpg)
+![Castillo de Amboise](resources/img_1530300x225.jpg)
 
- ![Puente sobre el Loira en Blois](resources/img_1538300x225.jpg)
+![Puente sobre el Loira en Blois](resources/img_1538300x225.jpg)
 
- ![El entorno del castillo de Chambord se presta a pasear en bicicleta](resources/img_1626300x225.jpg)
+![El entorno del castillo de Chambord se presta a pasear en bicicleta](resources/img_1626300x225.jpg)
 
 **La zona de los castillos**
 
@@ -157,11 +157,11 @@ Al caer la tarde iniciamos el regreso rumbo al sur, parando a pernoctar en el á
 
 El área, perteneciente al parking de la Maison du Pays, aunque incómoda y ruidosa por la proximidad de la carretera dormimos de un tirón.
 
- ![Antigua área de Perigueux con la catedral de Saint Front al fondo.](resources/img_1642300x225.jpg)
+![Antigua área de Perigueux con la catedral de Saint Front al fondo.](resources/img_1642300x225.jpg)
 
- ![Camino para bicicletas a la orilla del Isle en Perigueux](resources/img_1647300x225.jpg)
+![Camino para bicicletas a la orilla del Isle en Perigueux](resources/img_1647300x225.jpg)
 
- ![Área del Domaine de la Lande en Montbazillac](resources/img_1688300x225.jpg)
+![Área del Domaine de la Lande en Montbazillac](resources/img_1688300x225.jpg)
 
 **De regreso a casa**
 

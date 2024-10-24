@@ -1,6 +1,6 @@
 presentacion.md
 2004-09-03_grecia.md
-2006-01-20 marruecos.md
+2006-01-20_marruecos.md
 2007-05-17_alemania-y-polonia.md
 2007-09-15_los-castillos-del-loira.md
 2008-06-03_escandinavia.md

@@ -1,7 +1,7 @@
 # Carcaixent
-## 2009, julio
+**2009, julio**
 
- ![Senderismo por las cumbres de Carcaixent](resources/img_3902.jpg)
+![Senderismo por las cumbres de Carcaixent](resources/img_3902.jpg)
 
 **Senderismo por las cumbres de Carcaixent**
 
@@ -9,9 +9,9 @@ Mi pareja y yo somos poco partidarios de las quedadas. Asistimos como mucho a un
 
 En las quedadas cada uno da lo mejor de sí mismo y satisface además el espíritu gregario de la  persona. Compartir la comida y las ideas, incluso hablar de problemas y sus reivindicaciones son situaciones que nos acercan a los compañeros como personas.
 
- ![Visión de Google de Carcaixent y el área](resources/carcaixent300x269.jpg)
+![Visión de Google de Carcaixent y el área](resources/carcaixent300x269.jpg)
 
- ![Un área con los estacionamientos en terrazas](resources/img_3921300x225.jpg)
+![Un área con los estacionamientos en terrazas](resources/img_3921300x225.jpg)
 
 **Visión de Google de Carcaixent y el área**
 

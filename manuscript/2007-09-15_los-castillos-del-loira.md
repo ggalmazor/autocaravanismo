@@ -1,7 +1,7 @@
 # Los Castillos del Loira
-## 2007, 15 septiembre - 1 octubre
+**2007, 15 septiembre - 1 octubre**
 
- ![Área de Bicarrosse (Navarrosse)](resources/img_1213300x225.jpg)
+![Área de Bicarrosse (Navarrosse)](resources/img_1213300x225.jpg)
 
 **Área de Bicarrosse (Navarrosse)**
 
@@ -13,9 +13,9 @@ Cuando se utiliza una autocaravana para viajar y el tiempo no es un bien escaso,
 
 **Arsenio y Charo. septiembre 2007**
 
- ![Atardecer en el parking del puerto de Arcachon](resources/img_1229300x225.jpg)
+![Atardecer en el parking del puerto de Arcachon](resources/img_1229300x225.jpg)
 
- ![El mejor bioche del viaje.](resources/img_1233300x225.jpg)
+![El mejor bioche del viaje.](resources/img_1233300x225.jpg)
 
 **Atardecer en el parking del puerto de Arcachon**
 
@@ -37,13 +37,13 @@ Arcachón pertenece al departamento de La Gironde, en el corazón de las Landas 
 
 Visitamos la ciudad a pié y en bicicleta paseando por una extensa playa con la arena fina característica del Atlántico.
 
- ![La huerta de los "frutos de la Mar"](resources/img_1253300x225.jpg)
+![La huerta de los "frutos de la Mar"](resources/img_1253300x225.jpg)
 
- ![Fort Boyard](resources/img_12661300x225.jpg)
+![Fort Boyard](resources/img_12661300x225.jpg)
 
- ![La corderie.](resources/img_1295300x225.jpg)
+![La corderie.](resources/img_1295300x225.jpg)
 
- ![Réplica de la fragata Hermione que intervino en la guerra de independencia de la EEUU](resources/img_1297300x225.jpg)
+![Réplica de la fragata Hermione que intervino en la guerra de independencia de la EEUU](resources/img_1297300x225.jpg)
 
 **La huerta de los "frutos de la Mar"**
 
@@ -83,11 +83,11 @@ Nos desplazamos también, entre nubes de mosquitos y a través de una pista acon
 
 El 21 de septiembre, viernes por la tarde, nos desplazamos hasta el área de Sainte Maure de Touraine donde hacemos un descanso táctico. Se trata de un área privada (5,00€ con servicios), en un lugar bonito, simpático, tranquilo y seguro.
 
- ![Magníficos paseos para bicicleta.](resources/img_1337300x225.jpg)
+![Magníficos paseos para bicicleta.](resources/img_1337300x225.jpg)
 
- ![Vista del Loira desde el castillo de Chinon.](resources/img_1350300x225.jpg)
+![Vista del Loira desde el castillo de Chinon.](resources/img_1350300x225.jpg)
 
- ![Chimeneas de las cocinas románicas de la abadía de Fontevraud.](resources/img_1394225x300.jpg)
+![Chimeneas de las cocinas románicas de la abadía de Fontevraud.](resources/img_1394225x300.jpg)
 
 **La zona de Angers**
 
@@ -113,13 +113,13 @@ Al día siguiente nos desplazaos hasta Angers para visitar la ciudad y su impone
 
 La zona dispone de extensos caminos acondicionados para bicicletas en las orillas del Maine y nos llevan, por lado hasta Angers, por otro hasta Sainte Gemmes-sur-Loire y finalmente hasta Savenières y Bèuhard. Visitamos en estos pueblos unas pequeñas iglesias románicas muy interesantes. Permanecimos tres días.
 
- ![Área de Bouchemaine cerca de Angers.](resources/img_1497300x225.jpg)
+![Área de Bouchemaine cerca de Angers.](resources/img_1497300x225.jpg)
 
- ![Puente sobre el Loira en Blois.](resources/img_1537300x225.jpg)
+![Puente sobre el Loira en Blois.](resources/img_1537300x225.jpg)
 
- ![Castillo de Chambord](resources/img_1585300x225.jpg)
+![Castillo de Chambord](resources/img_1585300x225.jpg)
 
- ![Parking del castillo de Chambord.](resources/img_1642300x225.jpg)
+![Parking del castillo de Chambord.](resources/img_1642300x225.jpg)
 
 **La zona de castillos**
 
@@ -149,11 +149,11 @@ Al caer la tarde iniciamos el regreso rumbo al sur, parando a pernoctar en el á
 
 El área, perteneciente al parking de la Maison du Pays, aunque incómoda y ruidosa por la proximidad de la carretera dormimos de un tirón.
 
- ![Área de Perigueux](resources/img_1645300x225.jpg)
+![Área de Perigueux](resources/img_1645300x225.jpg)
 
- ![Acogida (France Passion) en Montbazillac.](resources/img_1687300x225.jpg)
+![Acogida (France Passion) en Montbazillac.](resources/img_1687300x225.jpg)
 
- ![El castillo de Montbazillac](resources/img_1678300x225.jpg)
+![El castillo de Montbazillac](resources/img_1678300x225.jpg)
 
 **Área de Perigueux**
 
