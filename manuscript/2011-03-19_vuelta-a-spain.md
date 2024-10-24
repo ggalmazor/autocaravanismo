@@ -3,8 +3,6 @@
 
 ![Marismas, caballos y flamencos en el Rocío](resources/p3310322.jpg)
 
-**Marismas, caballos y flamencos en el Rocío**
-
 Una salida por la Península Ibérica en autocaravana satisface siempre las expectativas. Estar en contacto con la naturaleza o admirar, una vez más, nuevos matices del extenso patrimonio histórico que atesora.
 
 Es evidente que el título es exagerado ni es una vuelta a España ni son ochenta áreas las visitadas. “Una vuelta por España” hubiera sido más indicado, pero menos poético o llamativo.
@@ -23,15 +21,11 @@ Pasamos la noche en el área de Vitoria. Completamos la única plaza que quedaba
 
 Pasamos la noche tranquila, el área es perfecta para visitar Vitoria desde donde se puede llegar hasta el centro histórico en caminos para bicicletas. La catedral está abierta por obras y es interesante en esta fase participar en una visita guiada para conocer cómo se construyó. También es interesante recorrer la Vía Verde del Zadorra.
 
-**Área de Valladolid, perfecta.**
-
 **Valladolid (20.03.2011)**
 
 Nos alojamos en el área de Valladolid sin problemas para encontrar espacio para estacionar. Se trata de un área limpia y bien cuidada en un parking público próxima al centro histórico. El pago se realiza por medio de una máquina expendedora de tickets, pero los fines de semana es gratuita.
 
 En la tarde del domingo realizamos un bonito paseo en bicicleta por el Parque Rivera de Castilla en las orillas del Pisuerga. Al día siguiente acudimos a pie a visitar el Centro Histórico y la catedral.
-
-**Estación del FC abandonada en Logrosán**
 
 **Logrosan (21.03.2011)**
 
@@ -53,21 +47,15 @@ Iniciamos el recorrido desde la antigua estación de FC abandonada a la que acce
 
 ![Área para autocaravanas en Castro Marim](resources/p3260232300x169.jpg)
 
-**Castillo de Fregenal de la Sierra**
-
 **Zafra (23.03.2011)**
 
 Continuamos el viaje hasta el área de Zafra. Está situada en un espacio cerrado que pertenece al recinto de la Feria Internacional Ganadera. El área de servicios está algo descuidado con uno de los sumideros atascados. No hay plazas señaladas para AC y el piso asfaltado está en pendiente. A pesar de todo y de que un par de veces al año está cerrada por celebrarse ferias de ganado, es un área interesante que debemos agradecer y que merece la pena cuidar.
 
 Visitamos el interesante centro histórico de la población e hicimos las compras necesarias en especial de charcutería local.
 
-**Mina de Rio Tinto**
-
 **Valverde del Camino (24.03.2011)**
 
 Paramos en Fregenal de Sierra donde visitamos la población y el castillo. Visitamos también las minas de Rio Tinto contemplando con un sentimiento de sorpresa y horror la capacidad del hombre para modificar el entorno. El paisaje modificado no deja indiferente y nos invita a reflexionar.
-
-Jara en flor en la vía verde de los Molinos del Agua
 
 Terminamos la jornada en Valverde del Camino en cuya área nos alojamos. Se trata de un área de servicios muy cómoda y accesible situada en un estacionamiento a la entrada norte del pueblo por la carretera de Zalamea a la que se accede desde la N-405.
 
@@ -76,8 +64,6 @@ Junto al borne de servicios existen tres bahías de la que una estaba ocupada po
 Una población interesante. Nos aprovisionamos en el comercio local y accedemos al Wi-Fi de la biblioteca situada en la Casa de Cultura en las proximidades del área.
 
 Al día siguiente recorrimos en ambos sentidos veinte kilómetros de la Vía Verde de los Molinos de Agua. Una antigua vía de FC bien cuidada aunque algo pendiente entre pinares y jara en flor.
-
-**Área para autocaravanas en Castro Marim**
 
 **Punta Umbría (25.03.2011 )**
 
@@ -89,8 +75,6 @@ Al día siguiente dimos un bonito paseo en bicicleta por el paraje natural de lo
 
 ![Costa del Atlántico en Huelva](resources/p3300281300x169.jpg)
 
-**Puente internacional sobre el Guadiana**
-
 **Castro Marim (26.03.2011 )**
 
 Continuamos el viaje con la intención de recorrer el Algarbe haciendo la primera etapa en Castro Marim que dispone de un área para AC gratuita (37,2203,-7,4449). El área estaba completa con autocaravanistas procedentes del norte de Europa, Noruega, Finlandia, Alemania y Francia, las más numerosas. Pernoctamos en un parking próximo y procedimos a vaciar y llenar los depósitos.
@@ -98,8 +82,6 @@ Continuamos el viaje con la intención de recorrer el Algarbe haciendo la primer
 Al día siguiente visitamos el castillo desde donde se divisa el paisaje de las salinas y marismas del río Guadiana que sirve de frontera entre España y Portugal.
 
 Desistimos continuar el viaje por Portugal y optamos por regresar a España para apurar las vías verdes y visitar lugares conocidos pero interesantes.
-
-**Costa del Atlántico en Huelva**
 
 **Isla Canela (27.03.2011 )**
 
@@ -127,19 +109,13 @@ Una vía mal cuidada con el suelo irregular pero practicable que pudimos recorre
 
 Llegamos a Matalascañas después de recorrer la carretera A-494. Paramos en alguna de las áreas de recreo del parque natural que bordea la carretera. Los agentes del servicio de vigilancia nos indicaron que estaba estrictamente prohibido pernoctar en AC, pero, por lo que pudimos ver, no se persigue el abandonar basura y acampar durante el día con cualquier clase de vehículos.
 
-**Parking en Matalascañas**
-
 Nos situamos en un parking de tierra en el extremo este del paseo marítimo de Matalascañas (36,9835,-6,5292) justo a la entrada de una de las puertas para acceder al Parque Natural de Doñana. El dueño del chiringuito situado en el parking nos informa que es frecuente encontrar autocaravanas estacionadas y que no está perseguido.
-
-**Pinos y sabinas en las dunas**
 
 Visitamos la zona recorriendo en bicicleta los caminos de madera que bordean el Parque Natural admirando el bosque de pinos piñoneros y un precioso sabinar.
 
 También recorrimos el paseo marítimo que bordea la playa durante unos seis kilómetros y vimos abundantes grupos de turistas de nuestra edad que ocupaban algunos hoteles. Sin embargo la sensación es de abandono, de urbanizaciones sin terminar y de falta de limpieza en un entorno natural agredido por el cemento y el ladrillo.
 
 Nos fuimos con la sensación de falta de infraestructura para el turismo en autocaravana ya que en toda la costa oeste andaluza no hay una sola área de servicios para autocaravanas.
-
-**Abiente**
 
 **Sevilla (01.04.2011 )**
 
@@ -156,8 +132,6 @@ Al día siguiente visitamos una vez más una ciudad que nos atrae. La catedral i
 Una noche más en el área soportando hasta una hora bastante avanzada el ruido de la música y las conversaciones en voz alta de los asiduos a las terrazas de los bares que hay en el puerto aunque esos inconvenientes afortunadamente no alteran nuestro sueño.
 
 ![Por la vía verde del aceite](resources/p4040474300x169.jpg)
-
-**Por la vía verde del aceite**
 
 **Alcaudete (03.04.2011 )**
 

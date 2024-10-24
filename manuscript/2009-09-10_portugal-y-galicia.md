@@ -3,8 +3,6 @@
 
 ![Puesta de sol en la playa de Coria en Portosín](resources/img_3695.JPG)
 
-Puesta de sol en la playa de Coria en Portosín
-
 **Antes de emprender el camino**
 
 Estar jubilados y disponer de una autocaravana es una combinación perfecta para viajar. La única motivación es la curiosidad y la necesidad de planificar o establecer un destino no es ninguna condición, de forma que el viaje en sí mismo y desde el inicio, es el propio destino cuando el medio, la autocaravana, proporciona el transporte y el alojamiento de acuerdo con las necesidades de cada momento.
@@ -16,8 +14,6 @@ Por ello no podemos sino relatar lo que hemos visto desde el comienzo y, sobre t
 Queremos agradecer a Conchi y Toño por su ayuda para conocer los recursos logísticos de Portugal y por sus indicaciones sobre los lugares a visitar.
 
 ![Iglesia octogonal de los templarios en Torres del Río (Na)](resources/img_3128300x225.jpg)
-
-Iglesia octogonal de los templarios en Torres del Río (Na)
 
 **Comenzamos el viaje**
 
@@ -31,11 +27,9 @@ En el interior dispone de una cúpula espectacular cuya nervadura parece cobijar
 
 Después de comer nos desplazamos hasta Logroño. Estacionamos en el parking del club deportivo “Las Norias” y continuación realizamos un largo paseo en bicicleta que nos lleva por las riveras del Ebro y del Iregua. Después de unos treinta kilómetros, nos relajamos en la piscina del complejo deportivo (4,5 € para los jubilados). La piscina está abierta con Wi-Fi hasta las 21:00 horas y el complejo hasta las 23:00. Logroño es una ciudad acogedora que merece la pena visitar de vez en cuando.
 
-Pernocta: Logroño, parking gratuito del ferial, 42º28’29,77’’N / 2º27’15,21’’W, junto al parque deportivo de Las Norias, en la margen izquierda del Ebro. Se trata de un amplio espacio cubierto por plátanos de porte alto.
+Pernocta: Logroño, parking gratuito del ferial, 42º28'29,77''N / 2º27'15,21''W, junto al parque deportivo de Las Norias, en la margen izquierda del Ebro. Se trata de un amplio espacio cubierto por plátanos de porte alto.
 
 ![Camino de sirga del Canal de Castilla](resources/img_3137300x225.jpg)
-
-**Camino de sirga del Canal de Castilla**
 
 **Palencia (11.09.2009)**
 
@@ -49,23 +43,19 @@ Nos desplazamos hasta Baños de Cerrato para visitar la iglesia visigoda de San 
 
 ![Observatorio de aves en los Arribes del Duero (Aldedávila)](resources/img_3197300x225.jpg)
 
-**Parque de recreo en los Arribes del Duero (Aldedávila)**
-
 **Aldeadávila (12.09.2009)**
 
 Después de comer partimos hacia Zamora. Nuestra intención era visitar la ciudad y quedarnos a dormir, pero en el parking que habíamos previsto había un par de coches calcinados y el lugar parecía solitario al pié de la fortaleza, así que decidimos continuar viaje después de la visita.
 
 Como siempre que visitamos la catedral nos impresiona el magnífico cimborio de influencia bizantina. Completamos el recorrido con una visita a la muralla y al castillo con los restos del antiguo alcázar. En uno de los laterales se estaban asando a fuego lento un par de terneros de los que se iban a dar cuenta a partir de las 8 de la tarde, lamentamos perdernos esta oportunidad de degustar este tipo de asado.
 
-Pernocta: Área para autocaravanas de Aldeadávila en los Arribes del Duero, 41º13’º13’’N / 6º36’50’’W. Se trata de un área un poco en cuesta al lado de un albergue, lugar tranquilo y seguro donde los haya. Dispone de los elementos necesarios para vaciar y cargar depósitos cómodamente aunque la maniobra sea un poco complicada.
+Pernocta: Área para autocaravanas de Aldeadávila en los Arribes del Duero, 41º13'º13''N / 6º36'50''W. Se trata de un área un poco en cuesta al lado de un albergue, lugar tranquilo y seguro donde los haya. Dispone de los elementos necesarios para vaciar y cargar depósitos cómodamente aunque la maniobra sea un poco complicada.
 
 Salimos en bicicleta hasta el mirador de aves por unos caminos de tierra y piedra con algunas fuertes pendientes que hacen tirar del ronzal de nuestras “burras”, podemos avistar águilas y buitres, así como el impresionante paisaje de los arribes.
 
 Una comida en el restaurante Rinconada de las Arribes, tabla de ibéricos, chuletón de morucha, postres, vino y café (42 €). Por la tarde damos un paseo hasta el Picón de Fermín y volvemos a la misma área para pernoctar.
 
 ![Parking de acceso al castillo en Tomar](resources/img_3265225x300.jpg)
-
-**Parking de acceso al castillo en Tomar**
 
 **Tomar (14.09.2009)**
 
@@ -87,8 +77,6 @@ Para visitar Óbidos es necesario estacionar en el exterior de la plaza amuralla
 
 ![Claustro manuelino del monasterio de Baltalha](resources/img_3374300x225.jpg)
 
-**Faro del cabo Carboeiro en Peniche**
-
 **Peniche  (16.09.2009)**
 
 Salimos con destino a Peniche. Una población costera que controla la entrada a una península donde en el cabo Carboeiro se puede contemplar las rocas atormentadas del litoral. Es una zona llana que permite pasear en bicicleta y a pié. Tomamos el primer contacto con la playa y pasamos el día dedicados al “dolce far niente”.
@@ -103,15 +91,13 @@ Como nos apetece sol y baño y hace un tiempo adecuado, nos acercamos a Nazarè 
 
 Por la tarde, nos dirigimos a Batalha para visitar el monasterio que se erigió para conmemorar la batalla de
 
-**Claustro manuelino del monasterio de Baltalha**
-
 en la que se enfrentaron los dos pretendientes al trono de Portugal.
 
 La iglesia destaca por la esbeltez y sobriedad de la bóveda y las vidrieras de la capilla mayor del S.XVI. Del monasterio lo más destacable es el claustro real donde la unión de los estilos gótico y manuelino se realiza felizmente. La sala  capitular alberga la tumba al soldado desconocido.
 
 Otro elemento destacable del conjunto del monasterio son las capillas inacabadas del proyectado panteón para don Duarte. El maestro Mateus  recibió el encargo del rey Manuel de acabar el mausoleo. Realizó el pórtico de estilo de transición del gótico al renacentista. Las siete capillas radiales están separadas por los famosos pilares inacabados profusamente decorados en la piedra.
 
-Pernocta: Batalha 39º39’40,88’’N / 8º49’29,64’’W. Se trata de un área gratuita para autocaravanas con doble bahía en el área de servicios con un borne “Euro Relais”.
+Pernocta: Batalha 39º39'40,88''N / 8º49'29,64''W. Se trata de un área gratuita para autocaravanas con doble bahía en el área de servicios con un borne “Euro Relais”.
 
 ![Parking para autocaravanas en Costa Nova do Prado (Aveiro)](resources/img_3414300x225.jpg)
 
@@ -123,8 +109,6 @@ El inmenso parking está semi-cerrado para un evento juvenil musical del domingo
 
 Pernocta: Figueira da Foz  40° 8′51.45″N / 8°52′2.47″W. Se trata de un parking gratuito en el que estacionan libremente las AC. Son frecuentes los eventos y las ferias, por lo que es fácil que el espacio se vea reducido. En esta ocasión ocupamos el espacio libre una veintena de AC, otras tantas tuvieron que dar la vuelta a últimas horas de la tarde por falta de espacio.
 
-**Parking para autocaravanas en Costa Nova do Prado (Aveiro)**
-
 **Aveiro  (19.09.2009)**
 
 Retomamos el viaje temprano en dirección a Aveiro donde llegamos a media mañana.
@@ -135,11 +119,9 @@ Pernocta: Costa Nova do Prado  40°36′51.57″N / 8°45′7.44″W. Parking re
 
 Dispone de váteres públicos y se permite el acceso a un imbornable del alcantarillado donde se puede vaciar el váter o las aguas grises. Dispone también de un grifo desde el que es posible llenar el depósito de limpias. Ambas tareas deben realizarse con la ayuda de cubos.
 
-A la mañana siguiente un paseo a pié de un par de horas nos lleva a recorrer el pueblo y sus alrededores partiendo hacia Oporto no sin antes pasar por el área de servicios de Estarteja (40º45’12.91N / 8º34’05.31’’W), gratuito con un borne Euro Relais, donde vaciamos y llenamos depósitos más cómodamente que en Costa Nova.
+A la mañana siguiente un paseo a pié de un par de horas nos lleva a recorrer el pueblo y sus alrededores partiendo hacia Oporto no sin antes pasar por el área de servicios de Estarteja (40º45'12.91N / 8º34'05.31''W), gratuito con un borne Euro Relais, donde vaciamos y llenamos depósitos más cómodamente que en Costa Nova.
 
 ![Tendederos de ropa en Gaia (Oporto)](resources/img_35011300x225.jpg)
-
-**Tendederos de ropa en Gaia (Oporto)**
 
 **Oporto (20.09.2009)**
 
@@ -153,17 +135,15 @@ Por la mañana salimos en bicicleta por un camino mixto peatonal que recorre los
 
 Para hacer apetito continuamos el recorrido por un camino para bicicletas que nos lleva por la margen izquierda hasta más allá de Praia de Lavadores.
 
-Después de comer nos dirigimos a un mayorista de vinos “Grossâo” 41º13’36,73’’N / 8º40’42,16’’W donde nos proveemos de unos excelentes reservas de denominación “Douro” de 2005 a un precio imbatible.
+Después de comer nos dirigimos a un mayorista de vinos “Grossâo” 41º13'36,73''N / 8º40'42,16''W donde nos proveemos de unos excelentes reservas de denominación “Douro” de 2005 a un precio imbatible.
 
 ![Puente sobre la ría en Exposende](resources/img_3507225x300.jpg)
-
-**Puente sobre la ría en Exposende**
 
 **Vila do Conde y Exposende (22.09.2009)**
 
 Llegamos a Vila do Conde por la tarde y nos situamos en el parking gratuito del paseo marítimo, junto al castillo.
 
-Pernocta: 41º20’41,73’’N / 8º44’44,79’’W, parking gratuito próximo al castillo no se ven más autocaravanas. Un poco ruidoso por la proximidad con la  carretera. Hay otros lugares donde estacionan AC.
+Pernocta: 41º20'41,73''N / 8º44'44,79''W, parking gratuito próximo al castillo no se ven más autocaravanas. Un poco ruidoso por la proximidad con la  carretera. Hay otros lugares donde estacionan AC.
 
 Día completo de relax, paseo en bici por la costa hasta A Ver-o-Mar pasando por Povoa de Varzim, playa y reposo, el día es espléndido.
 
@@ -175,7 +155,7 @@ Impresiona un poco la soledad pero tampoco da sensación de inseguridad por la i
 
 Hemos dormido con tranquilidad pues es lugar es silencioso, nos trasladamos para estacionar en el paseo marítimo y como hace buen tiempo recorremos en bicicleta la zona con un paisaje muy bonito.
 
-A mediodía nos desplazamos a Barcelós al hotel Bogoeira, donde aparcamos enfrente 41º31’54,27’’N / 8º37’01,95’’W. Entrantes y una cazuela de “Galo”, cocido de gallo con su sangre con arroz. La cazuela que nos sacan con medio gallo son casi cuatro raciones que no podemos terminar. 39 euros con café y vino.
+A mediodía nos desplazamos a Barcelós al hotel Bogoeira, donde aparcamos enfrente 41º31'54,27''N / 8º37'01,95''W. Entrantes y una cazuela de “Galo”, cocido de gallo con su sangre con arroz. La cazuela que nos sacan con medio gallo son casi cuatro raciones que no podemos terminar. 39 euros con café y vino.
 
 **Viana do Castelo (24.09.2009)**
 
@@ -183,13 +163,11 @@ Después de digerir la comida mediante un paseo por la población de los gallos 
 
 El camping dispone de comodidades aunque con terreno un poco inclinado y el suelo de arena, la piscina está abierta y aprovechamos para hacer limpieza general y relajarnos.
 
-**Pernocta: Viana do Castelo, 41º40’41.63’’N / 8º49’34.99’’W. Camping Orbitur**
+**Pernocta: Viana do Castelo, 41º40'41.63''N / 8º49'34.99''W. Camping Orbitur**
 
 ![Gaviotas sobre la playa de Coira en Portosín](resources/img_3553300x225.jpg)
 
 ![Navegar a vela no es tan complicado](resources/img_3582300x225.jpg)
-
-**Gaviotas sobre la playa de Coira en Portosín**
 
 **Portosin (25.09.2009)**
 
@@ -201,13 +179,9 @@ Hemos dormido tranquilos, por la mañana un bonito paseo contorneando el cabo ha
 
 Por la tarde vaciamos y llenamos depósitos en Boiro y llegamos a Portosin a última hora de la tarde. Una puesta de sol espectacular sobre la bocana de la ría de Noia-Muros despide el día.
 
-Pernocta: Portosín, parking gratuito de la playa de Coira, 42º45’27.06’’N / 8º57’01.80’’W. Uno de los lugares más bonitos, tranquilos y seguros de todo el viaje.
+Pernocta: Portosín, parking gratuito de la playa de Coira, 42º45'27.06''N / 8º57'01.80''W. Uno de los lugares más bonitos, tranquilos y seguros de todo el viaje.
 
-Hemos dormido tranquilamente, nos reunimos con nuestros amigos Dora, Pepe e Ignacio y nos vamos a navegar a vela
-
-**Navegar a vela no es tan complicado**
-
-por las tranquilas aguas de la ría en un barco de crucero, una autocaravana marina de 14 metros con comedor para doce plazas.
+Hemos dormido tranquilamente, nos reunimos con nuestros amigos Dora, Pepe e Ignacio y nos vamos a navegar a vela por las tranquilas aguas de la ría en un barco de crucero, una autocaravana marina de 14 metros con comedor para doce plazas.
 
 A mediodía, atracamos en O Freixo y damos cuenta de unas fuentes de berberechos, almejas, navajas y calamares locales regados por un sorprendente godella con denominación de origen Valdeorras. Por la tarde un baño en las aguas de la ría que está 20 grados finaliza una jornada excelente.
 
@@ -215,13 +189,11 @@ Pasamos otra noche tranquila en la playa de Coira, visita al mercado dominical d
 
 ![El cañón del Sil y la Rivera Sacra](resources/img_3753225x300.jpg)
 
-**El cañón del Sil y la Rivera Sacra**
-
 **Boiro (29.09.2009)**
 
 Por la tarde nos despedimos de nuestros amigos y nos desplazamos hasta la playa de Boiro. El bareto de la playa está cerrado y el cartel nos indica que debemos desplazarnos hasta el centro del pueblo para abonar la estancia. Nos quedamos en compañía de tres AC.
 
-Pernocta: Boiro, área para autocaravanas 42º38’30.17’’N / 8º53’48.54’’W. El área es de pago (6€), pero el bareto está cerrado y un cartel nos remite al centro del pueblo a un par de kilómetros. Consultamos con otras tres autocaravanas alojadas y decidimos pagar si vienen a cobrar, cosa que no ocurre.
+Pernocta: Boiro, área para autocaravanas 42º38'30.17''N / 8º53'48.54''W. El área es de pago (6€), pero el bareto está cerrado y un cartel nos remite al centro del pueblo a un par de kilómetros. Consultamos con otras tres autocaravanas alojadas y decidimos pagar si vienen a cobrar, cosa que no ocurre.
 
 Los coches que pasan por la carretera meten bastante ruido, pero podemos dormir sin problemas. Vaciamos y llenamos depósitos y nos desplazamos hasta Portonovo con la intención de coger el barco de las 12 hasta la isla de Ons. Los viajes desde Portonovo se suspendieron el último fin de semana de septiembre, por lo que debemos desplazarnos hasta Bueu.
 
@@ -231,13 +203,13 @@ Comemos en el restaurante “La Estrella”, Polvo a feira, mejillones y navajas
 
 La isla de Ons es un espacio natural protegido perteneciente al Parque Nacional de las Islas Atlánticas de Galicia. Hacemos un recorrido de un par de horas hasta el faro contemplando el impresionante paisaje de las entradas de las rías de Pontevedra y Arousa. Una excursión recomendable y para recordar.
 
-Pernocta: Bueu, parking gratuito junto al puerto, 42º19’37.18’’N / 8º47’09.54’’W. Un poco justos de espacio entre los turismos, nos despierta el ruido de la actividad portuaria a las 08:00 de la madrugada.
+Pernocta: Bueu, parking gratuito junto al puerto, 42º19'37.18''N / 8º47'09.54''W. Un poco justos de espacio entre los turismos, nos despierta el ruido de la actividad portuaria a las 08:00 de la madrugada.
 
 **Ourense (30.09.2009)**
 
 Compramos unas nécoras en el mercado y continuamos el viaje hacia Ourense. Hace un calor pegajoso.
 
-Pernocta: Ourense, parking de las termas de Chavasqueira 42º20’55.28’’N / 7º52’41.57’’W, junto a los bomberos.
+Pernocta: Ourense, parking de las termas de Chavasqueira 42º20'55.28''N / 7º52'41.57''W, junto a los bomberos.
 
 Ha sido una noche un poco ruidosa. Comenzó nuestro vecino, una Laika que puso el aire acondicionado con un generador. Afortunadamente acabó en una hora y media. El lúgubre mugido de las vacas del matadero próximo fue interrumpido por un par de salidas de los bomberos con todo lujo de sirenas. Pusimos a prueba los tapones de los oídos y así pudimos dormir bastante bien.
 
@@ -249,7 +221,7 @@ Después del paseo en bicicleta nos da tiempo para visitar la catedral de san Ma
 
 Nos desplazamos al parking situado en el área de recepción al lado del puente peatonal que accede a las termas de Outariz y, después de comer, visitamos las pozas de Outariz y burgas de Canedo, piscinas termales gratuitas.
 
-**Pernocta: Ourense, parking gratuito de Outariz, 42º29’51.54’’N / 7º54’47,95’’W**
+**Pernocta: Ourense, parking gratuito de Outariz, 42º29'51.54''N / 7º54'47,95''W**
 
 01.10.2009. Noche tranquila a pesar de la proximidad de la carretera. Desde primera hora de la mañana acuden coches con usuarios de las piscinas termales y pronto se llena el parking.
 
@@ -261,13 +233,11 @@ Salimos ya de regreso casa parando en el área de Monforte de Lemos para vaciar 
 
 Tomamos la carretera que bordea el Camino de Santiago entre Ponferrada y Astorga pasando por Foncebadón, Rabanal del Camino y Castrillo de Polvazares que tan buenos recuerdos nos trae y tan buenos paisajes proporciona.
 
-Pernocta: Astorga, parking gratuito junto a las piscinas municipales 42º27’05,90’’N / 6º03’28,52’’W. Un lugar bonito, tranquilo (relativamente) y Seguro. Lo preferimos al área, más solitaria.
-
-**Casa típica en Saldaña**
+Pernocta: Astorga, parking gratuito junto a las piscinas municipales 42º27'05,90''N / 6º03'28,52''W. Un lugar bonito, tranquilo (relativamente) y Seguro. Lo preferimos al área, más solitaria.
 
 **Saldaña (02.10.2009)**
 
-Continuando el viaje, paramos en Saldaña en la magnífica recién inaugurada área (42º31’06’’N / 4º44’27’’W), situada al lado de las piscinas municipales tomando el camino frente al mercado de ganado, donde vaciamos y llenamos depósitos.
+Continuando el viaje, paramos en Saldaña en la magnífica recién inaugurada área (42º31'06''N / 4º44'27''W), situada al lado de las piscinas municipales tomando el camino frente al mercado de ganado, donde vaciamos y llenamos depósitos.
 
 Visitamos el pueblo y su museo, y nos desplazamos a la villa romana de La Olmeda, donde admiramos en especial los impresionantes mosaicos.
 

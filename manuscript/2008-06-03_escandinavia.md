@@ -3,8 +3,6 @@
 
 ![Casas de pescadores en Svolvaer (Lofoten)](resources/img_0930.JPG)
 
-**Casas de pescadores en Svolvaer (Lofoten)**
-
 **Preparando el viaje, junio de 2008**
 
 Cientos de autocaravanas de todos los tipos, tamaños y nacionalidades, que circulan por el norte de Suecia, consagran el interés por esta forma de viajar y por las posibilidades turísticas de la región más septentrional de Europa.
@@ -27,9 +25,7 @@ En este relato queremos también indicar los recursos para los autocaravanistas,
 
 Emprendemos el viaje a través de la N10 francesa, vía Burdeos hasta Saint Paul Blaye (F), nos alojamos en una pequeña área para autocaravanas gratuita, (45.14797ºN/0,60479ºW). .
 
-Continuamos hacia el norte evitando las autopistas y evitando también el paso por París, aprovechando la ocasión para volver a visitar Le Mont Saint Michel, pernoctamos en una área de autocaravanas gratuita en la pequeña población de Saint Brice en Coglés (F) (48º24’40.32”N/1º21’45.216”W).
-
-**Le Mont Saint Michael**
+Continuamos hacia el norte evitando las autopistas y evitando también el paso por París, aprovechando la ocasión para volver a visitar Le Mont Saint Michel, pernoctamos en una área de autocaravanas gratuita en la pequeña población de Saint Brice en Coglés (F) (48º24'40.32”N/1º21'45.216”W).
 
 **Le Mont Saint Michel (4 de junio)**
 
@@ -37,15 +33,13 @@ La marea está baja y damos un largo paseo por la bahía. Admiramos desde todos 
 
 El parking cuesta 12 euros y hay que abandonarlo antes de que lo cubra la marea alta, a las siete de la tarde. Hay decenas de autocaravanas estacionadas.
 
-Reemprendemos el viaje por pequeñas carreteras secundarias hasta la población de Beubron en Auge (F), en el departamento de Calvados al oeste de Caen, en cuya área gratuita pernoctamos (49º11’8.16”N/0º2’58,2”W).
+Reemprendemos el viaje por pequeñas carreteras secundarias hasta la población de Beubron en Auge (F), en el departamento de Calvados al oeste de Caen, en cuya área gratuita pernoctamos (49º11'8.16”N/0º2'58,2”W).
 
 Continuamos el viaje hasta la pequeña población de Hondschoote (F), en la frontera con Holanda, en cuya área gratuita pernoctamos, no tenemos prisa. (50° 58′ 34.608′′N/2° 34′ 49.188′′E).
 
-Continuamos viaje hasta el área de autocaravanas de la pequeña ciudad de Xanten (D) en Alemania (52º54’1.404′N/8º25’38.496”E).
+Continuamos viaje hasta el área de autocaravanas de la pequeña ciudad de Xanten (D) en Alemania (52º54'1.404′N/8º25'38.496”E).
 
 ![Isla de Faro, área de acampada](resources/img_0401300x225.jpg)
-
-**Isla de Faro, área de acampada**
 
 **Dinamarca primera etapa (7 de junio)**
 
@@ -61,8 +55,6 @@ La conducción de una autocaravana por las autopistas alemanas es fácil pero mu
 
 ![El palacio de Hamlet en Helsingor](resources/img_0452300x225.jpg)
 
-**Paseo en bicicleta por Copenhague**
-
 **Copenhague(8 de junio)**
 
 Llegamos al parking del Kalvebod Brygge en Copenhague (Kobenhavn). Nos llevamos la sorpresa de que en ese parking estaba prohibido estacionar a las autocaravanas a pesar de lo indicado en otros relatos. Es domingo y hay plazas de sobra en la ciudad. Estacionamos en una calle próxima (55º40.518′N/12º35.071′E) y montados en las bicicletas nos disponemos a recorrerla.
@@ -73,19 +65,15 @@ La estancia ha sido corta pero intensa. No estamos seguros si vamos a poder pern
 
 En Helsingor (DK) tomamos el ferry hasta Helsinborg en Suecia continuando por la  autovía E4 hasta Granna.
 
-**El palacio de Hamlet en Helsingor**
-
 Teníamos referencia de un parking accesible en esta pequeña ciudad al borde del lago Vattern, pero nos encontramos con prohibiciones expresas para estacionar autocaravanas. En el camping vecino nos indican que son 24 euros lo qe cuesta pernoctar, por lo que optamos seguir por la autopista hasta un área de descanso.
 
 La primera área de descanso está situada a un kilómetro escaso de la salida de Granna, dotada de un bloque sanitario con calefacción incluido un lugar para el vaciado del depósito del váter y un grifo de suministro de agua potable. Las aguas grises las vaciamos con cubos, operación que repetiremos en el viaje.
 
-Con unas magníficas vistas sobre el lago Vattern pernoctamos junto a otras dos autocaravanas y tres caravanas con una absoluta sensación de seguridad. (59º19’12.36”N/18º1’48.54”E).
+Con unas magníficas vistas sobre el lago Vattern pernoctamos junto a otras dos autocaravanas y tres caravanas con una absoluta sensación de seguridad. (59º19'12.36”N/18º1'48.54”E).
 
 ![En el Ayuntamiento de Estocolmo en bicicleta](resources/img_0485300x225.jpg)
 
-![La catedrañ de Upsala desde el castillo](resources/img_0533300x225.jpg)
-
-**En el Ayuntamiento de Estocolmo en bicicleta**
+![La catedral de Upsala desde el castillo](resources/img_0533300x225.jpg)
 
 **Estocolmo y Upsala (9 y 10 de junio)**
 
@@ -96,8 +84,6 @@ Salimos con las bicicletas a recorrer Estocolmo yendo directamente al centro his
 A la mañana siguiente realizamos una breve escapada en la que visitamos de nuevo los canales y las calles de la ciudad vieja dedicando especial atención al ayuntamiento literalmente ocupado por turistas japoneses. Regresamos a comer en la autocaravana y partimos después de vaciar y llenar los depósitos.
 
 Llegamos a Upsala a media tarde y estacionamos en un parking público (59º51.787′N/17º38.082′E).
-
-**La catedrañ de Upsala desde el castillo**
 
 Hacemos una visita a la ciudad, lo más interesante queda cerca. La catedral (Domkyrka), el edificio del museo Carolina Rediviva y el castillo (Uppsala Slot) con la campana (Gunilla Clockan), que suele tañerse durante el solsticio de verano, situada en los restos de una de las torres.
 
@@ -119,8 +105,6 @@ Llegamos a la población de Stromsund a un parking a la orilla del lago Rufssjar
 
 ![Puente de entrada en las islas Lofoten](resources/img_0875300x225.jpg)
 
-**Túmulo del Círculo Polar Ártico en Jokkmokk**
-
 **En el Círculo Polar Ártico (13 de junio)**
 
 Seguimos sin abandonar la carretera E45 hasta la puerta del Círculo Polar Ártico en la localidad de Jokkmokk. Entre la sucesión de bosques aparecen praderas y caseríos de madera dedicados a la  ganadería. Espacios pulcros y bien cuidados, que ponen una nota pintoresca en el paisaje sirviendo de contrapunto a la aparente monotonía del bosque.
@@ -137,8 +121,6 @@ Nos alojamos en un área de descanso en la E10 en las proximidades de Bjorkliden
 
 **Llegamos a las islas Lofoten (15 de junio)**
 
-**Puente de entrada en las islas Lofoten**
-
 Continuamos viaje por la carretera E10, pasamos la frontera entre Suecia y Noruega y entramos en las islas Lofoten por Bjekrvik hasta la población de Svolvaer. Nos situamos en el área de descanso de una estación de servicio a la entrada del pueblo. (68º14.366′N/ 14º34.014′E).
 
 Lo primero que llama la atención al contemplar el paisaje es la impresionante belleza natural de las formaciones rocosas que se elevan como muros. Picos, isletas, montañas, fiordos, playas y grandes áreas vírgenes sorprenden a cada paso que damos. Todas las islas están comunicadas entre si por carretera a través de puentes o túneles bajo el agua.
@@ -151,8 +133,6 @@ La pesca del bacalao se realiza en invierno y por todas partes hay empalizadas d
 
 ![Área para autocaravanas en Eggum](resources/img_1005300x225.jpg)
 
-**Lago glaciar en Eggum**
-
 El sol de medianoche en el área de Eggum (16 de junio)
 
 Volvemos a pasear por los alrededores disfrutando del paisaje. A mediodía Charo se embarca para un pequeño crucero a lo largo del Trollfjord. El viaje se complementa con el avistamiento de los tímidos frailecillos o el espectáculo de una enorme águila marina capturando al vuelo el pescado que le lanzan desde el barco. Las paredes verticales del estrecho fiordo, las rocas y las colonias de frailecillos hacen las delicias de los pasajeros favorecido por el buen tiempo.
@@ -160,8 +140,6 @@ Volvemos a pasear por los alrededores disfrutando del paisaje. A mediodía Charo
 Por la tarde reanudamos el viaje hasta el área de autocaravanas de Eggum, situada en un paraje increíble al noroeste de la isla Vestvagoy. A los pies de un lago glaciar que desagua en el mar, con una cascada al fondo y un pequeño fortín. Se trata de un área dotada de un bloque sanitario con calefacción y con suministro de agua potable en la que aparcamos un par de docenas de autocaravanas dispuestas a pasar la noche con una visibilidad total del horizonte al noroeste. (68º18.476′N/ 13º39.258′E).
 
 El tiempo es magnífico y nos permite ver cómo el astro rey describe un elipse en el horizonte, durante la noche, sin
-
-**Área para autocaravanas en Eggum**
 
 desaparecer bajo las aguas. Es un espectáculo impactante y uno de los objetivos del viaje cubiertos.
 
@@ -174,8 +152,6 @@ Tradicionalmente la actividad principal de los habitantes de las islas Lofoten h
 Decidimos pernoctar en un área de descanso de la carretera E6, entre Bodo y Fauske, en compañía de una auto francesa pilotada por Pierre. (67º17.895′N/ 14º52.533′E).
 
 ![Es el terreno de los ferry](resources/img_1131225x300.jpg)
-
-**Es el terreno de los ferry**
 
 **Los incidentes también cuentan (18 de junio)**
 
@@ -190,8 +166,6 @@ Decidimos regresar a Mosjoen para realizar una consulta en el hospital local don
 La atención está cubierta por la seguridad social, la tarjeta azul funciona, a pesar de ello debemos hacer efectivas 770 coronas por la atención médica y 145 por la medicación cantidades que nos serán reembolsadas por el seguro de asistencia en carretera de Allianz, según nos indican.
 
 ![Las carreteras discurren por el mar](resources/img_1266300x225.jpg)
-
-**Las carreteras discurren por el mar**
 
 **Hacia el sur por Noruega (19 de junio)**
 
@@ -217,8 +191,6 @@ Una vez recorridos los algo mas de ocho kilómetros de la carretera del mar ést
 
 Llegamos a Eidsdal después de atravesar sendos fiordos en Molde y Linge a bordo de ferrys en una carretera muy accidentada y estrecha. Pernoctamos en el parking del ferry de Linge (62º15.760′N/ 7º10.253′E).
 
-**Con el Geiragerfjor al fondo**
-
 **La belleza de los fiordos (22 de junio)**
 
 Retomamos el camino subiendo un accidentado puerto que nos sitúa en un collado desde el que se divisa el fondo del Geirangerfjord. La vista avala lo que se afirma en las guías turísticas calificándolo como uno de los más bellos de Noruega. Durante el descenso casi vertical hacia el poblado de Geiranger hacemos algunas paradas en las áreas ocupadas por numerosos vehículos en los que no faltan las habituales hordas de turistas japoneses.
@@ -233,8 +205,6 @@ Llegamos a Oppedal después de pasar el Sognefjorden en un ferry que tomamos en 
 
 ![Con el barrio de Bryggen al fondo bajo la lluvia](resources/img_1547300x225.jpg)
 
-Con el barrio de Bryggen al fondo bajo la lluvia
-
 **Bergen, una bonita ciudad (23 junio)**
 
 Continuamos el viaje hacia Bergen por la E30, una tortuosa carretera plagada de túneles. Hay dos controles para el peaje en un par de tramos que no acertamos a pagar y que, con seguridad, hemos sido fotografiados como morosos, pero es imposible entenderse con las instrucciones.
@@ -246,8 +216,6 @@ En Bergen visitamos el centro de la ciudad, el barrio medieval de Bryggen consti
 Continuamos viaje por la carretera E16, hasta Kinsarvik después de tomar el enésimo ferry para atravesar el Eidfjord entre Briones y Bruravic. Pernoctamos en un área de descanso de una estación de servicio. (60º22.445′N/ 60º22.445′N).
 
 ![Las iglesias de madera](resources/img_1656225x300.jpg)
-
-**Las iglesias de madera**
 
 **Las iglesias de madera nórdicas (24 de junio)**
 
@@ -262,8 +230,6 @@ En el viaje de regreso atravesamos el sur de Suecia por la  autopista E-E20, tom
 Una vez en Dinamarca, en Helsingor, visitamos el famoso castillo de Helsinore donde transcurre la acción del Hamlet de Shakespeare.
 
 ![En las proximidades de un área francesa](resources/img_1693225x300.jpg)
-
-**En las proximidades de un área francesa**
 
 De vuelta a casa (26 de junio al 1 de julio)
 
@@ -280,8 +246,6 @@ Hace buen tiempo y luce el sol. Nos encaminamos al área de Gastes, nuestra favo
 El tiempo ha empeorado y nos encontramos con deseos de regresar a casa. Hacemos la limpieza, recogemos la ropa para lavar y a las cuatro de tarde estacionamos enfrente de casa en Donostia.
 
 ![El área de Gastes, nuestra favorita en las Landas](resources/img_1702300x225.jpg)
-
-**El área de Gastes, nuestra favorita en las Landas**
 
 **Algunos comentarios finales**
 

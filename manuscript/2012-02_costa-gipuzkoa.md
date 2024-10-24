@@ -3,8 +3,6 @@
 
 ![Parking de Hondarribia 2009](resources/parkinghondarribia.jpg)
 
-**Parking de Hondarribia 2009**
-
 El mar Cantábrico atesora en su litoral un catálogo de poblaciones a cada cual más apetecible desde un punto de vista turístico y, como no, atrae una buena cantidad de turistas que han elegido una autocaravana como medio de transporte y alojamiento.
 
 Este trabajo está dedicado a todos los autocaravanistas que se plantean visitar la costa de Gipuzkoa tratando de recopilar los recursos turísticos y, sobre todo, la disposición de infraestructura para estacionar, pernoctar y vaciar los depósitos de residuos y reponer agua limpia.
@@ -15,9 +13,7 @@ No conozco personalmente todos los lugares así que no puedo garantizar la certe
 
 **Hondarribia**
 
-Parking de la playa de Hondarribia (Salida sidrera club Sorbeltz de 2010)
-
-Dispone de un amplio aparcamiento en la playa que ha sido utilizado por centenares de autocaravanas. Disfruta de una demanda muy intensa de turismo y no es raro ver en verano a diario decenas de autocaravanas en el parking. (43º22’43,83’’N / 1º47’51,80’’W)
+Dispone de un amplio aparcamiento en la playa que ha sido utilizado por centenares de autocaravanas. Disfruta de una demanda muy intensa de turismo y no es raro ver en verano a diario decenas de autocaravanas en el parking. (43º22'43,83''N / 1º47'51,80''W)
 
 En Hondarribia se repite la historia de siempre: la presencia de numerosas autocaravanas junto con los abusos de algunos usuarios y el desconocimiento de los vecinos y de las autoridades locales del turismo en autocaravana, de las características de nuestros vehículos y hasta diferenciar nuestra actividad del nomadismo, propician frecuentes quejas de los vecinos que se traducen en medidas que tienden a disuadir indiscriminadamente el uso de los estacionamientos públicos por los autocaravanistas.
 
@@ -31,7 +27,7 @@ No sabemos si serán tenidos en cuenta los argumentos que hemos planteado en el 
 
 Se ha barajado la posibilidad de crear un área y, de momento parece difícil por la carencia de terrenos adecuados a pesar de que el lugar apropiado debería ser un espacio delimitado en un rincón del propio parking.
 
-Nos quedará siempre la posibilidad de estacionar durante el día en el parking de la playa (8 euros) y pernoctar en otros lugares gratuitos en la misma población o en la periferia, entre ellos en las inmediaciones de Guadalupe en el monte Jaizkibel. (43º22’05,36’’N/1º49’16,50’’W)
+Nos quedará siempre la posibilidad de estacionar durante el día en el parking de la playa (8 euros) y pernoctar en otros lugares gratuitos en la misma población o en la periferia, entre ellos en las inmediaciones de Guadalupe en el monte Jaizkibel. (43º22'05,36''N/1º49'16,50''W)
 
 Lo que no cabe duda es que la población atesora alicientes que la convierten en un destino apetecible para un turista. El centro de la villa está declarado como conjunto histórico monumental, conserva puertas, murallas y baluartes y contiene numerosos edificios de interés artístico e histórico.
 
@@ -47,9 +43,7 @@ El cabo Higuer con dos miradores sobre la costa Labortana. El fuerte de Guadalup
 
 **Orio**
 
-**Parking de la playa de Orio**
-
-Es una población con una larga tradición marinera situada en la desembocadura del río Oria. Dispone de una hermosa playa y de un amplio parking donde por el momento se puede estacionar. (43º17’13,86’’N/2º07’36,87’’W)
+Es una población con una larga tradición marinera situada en la desembocadura del río Oria. Dispone de una hermosa playa y de un amplio parking donde por el momento se puede estacionar. (43º17'13,86''N/2º07'36,87''W)
 
 Entre el último meandro de la desembocadura del Oria, hay un bonito paseo que recorre la margen derecha apto para bicicletas.
 
@@ -67,7 +61,7 @@ El crecimiento de la población, la construcción masiva de viviendas residencia
 
 Para encontrar un estacionamiento hay que descartar de antemano las calles próximas a la playa y buscar acomodo en los barrios periféricos entre las vías del ferrocarril y la autopista.
 
-Algunas referencias sitúan autocaravanas en la calle de Lapurdi paralela a las vías de ferrocarril a partir de las coordenadas 43º17’01,47’’N/2º9’42,31’’W (Información Aiako). Sin embargo es desaconsejable en verano. Una zona alternativa para pernoctar a dos kilómetros de la playa es el área recreativa de Asti (43º16’40,47’’N/2º09’’1,40’’W). (Fuente FurgovW.org). En verano durante el día puede haber afluencia de vehículos pero por la noche queda bastante solitario.
+Algunas referencias sitúan autocaravanas en la calle de Lapurdi paralela a las vías de ferrocarril a partir de las coordenadas 43º17'01,47''N/2º9'42,31''W (Información Aiako). Sin embargo es desaconsejable en verano. Una zona alternativa para pernoctar a dos kilómetros de la playa es el área recreativa de Asti (43º16'40,47''N/2º09''1,40''W). (Fuente FurgovW.org). En verano durante el día puede haber afluencia de vehículos pero por la noche queda bastante solitario.
 
 Aun así es una población que tiene suficientes alicientes para visitarla que vale la pena buscar un lugar donde estacionar para recorrer el casco antiguo con edificios civiles y religiosos interesantes de los siglos XV y XVI.
 
@@ -79,7 +73,7 @@ Como en todas las poblaciones de Gipuzkoa existe una amplia oferta de gastronom�
 
 El centro histórico de esta pequeña ciudad marinera, cuna de Juan Sebastián Elcano, esta situado a caballo entre el istmo que une a tierra el monte San Antón, cuya silueta tiene la forma de un ratón, y un escarpado acantilado.
 
-El estacionamiento y pernocta de autocaravanas se puede realizar detrás de los pabellones del puerto pesquero (43º18’22,20’’N/2º12’12,06’’W) (fuente VEA), y al parecer está prohibido pernoctar en cualquier otro lugar de la población, la tarifa de estacionamiento (sin servicios) es de 5 euros al día (información de 2009). Pese a la prohibición es frecuente ver numerosas autocaravanas estacionadas en el puerto y en el parking de la playa que está abierto al oeste.
+El estacionamiento y pernocta de autocaravanas se puede realizar detrás de los pabellones del puerto pesquero (43º18'22,20''N/2º12'12,06''W) (fuente VEA), y al parecer está prohibido pernoctar en cualquier otro lugar de la población, la tarifa de estacionamiento (sin servicios) es de 5 euros al día (información de 2009). Pese a la prohibición es frecuente ver numerosas autocaravanas estacionadas en el puerto y en el parking de la playa que está abierto al oeste.
 
 Dispone de una pequeña y coqueta playa orientada al poniente y otra mayor hacia el este así como un casco antiguo que junto con el pueblo constituyen una interesante visita en la que se pueden admirar diversos edificios civiles y religiosos bien conservados.
 
@@ -89,13 +83,13 @@ También es la capital del Txakolí, un vino blanco elaborado con uva verde lo q
 
 **Zumaia**
 
-Es una población costera situada en la desembocadura del río Urola que dispone de una playa amplia y bien protegida. Dispone, además, de un área para autocaravanas en la margen izquierda del Urola a la altura de un polígono industrial, (43º17’36,88’’N/2º15’’2,60’’W).
+Es una población costera situada en la desembocadura del río Urola que dispone de una playa amplia y bien protegida. Dispone, además, de un área para autocaravanas en la margen izquierda del Urola a la altura de un polígono industrial, (43º17'36,88''N/2º15''2,60''W).
 
 El área está compuesta por un punto de vaciado de residuos, un grifo de agua limpia y unas plazas para estacionar y pernoctar. El lugar no es una maravilla y está algo alejado de la playa, sin embargo, es la mejor alternativa ante la poca oferta de plazas en la zona urbana.
 
 La política del ayuntamiento es la de respetar el estacionamiento de las autocaravanas, por lo que, cumpliendo con las normas de tráfico, nadie tendrá ningún problema en la población para pernoctar. Hace unos años se podía estacionar en la explanada del puerto junto a los astilleros. A raíz de un accidente la autoridad portuaria prohibió el estacionamiento de toda clase de vehículos.
 
-Otra alternativa para pernoctar es San Miguel de Artadi en un pequeño parking con unas hermosas vistas de la población y la costa (43º17’16,47’’N/2º14’28,33’’W), junto al frontón y la iglesia. En un bar próximo dan comidas con una buena relación calidad / precio. (Fuente ForgovW).
+Otra alternativa para pernoctar es San Miguel de Artadi en un pequeño parking con unas hermosas vistas de la población y la costa (43º17'16,47''N/2º14'28,33''W), junto al frontón y la iglesia. En un bar próximo dan comidas con una buena relación calidad / precio. (Fuente ForgovW).
 
 Zumaia dispone de un bonito paseo marítimo a lo largo del estuario del Urola y carriles para bicicleta además de unos notables paisajes de la zona costera. La costa situada entre Deba y Zumaia destaca por los acantilados de Itzurun que constituyen los ocho kilómetros de la rasa mareal de Mendata de importancia geológica internacional.  Desde Zumaia se puede realizar la ruta del Flysch con visitas guiadas desde el centro Algorri.
 
@@ -103,7 +97,7 @@ Zumaia dispone de un bonito paseo marítimo a lo largo del estuario del Urola y 
 
 Deva es uno de los innumerables dioses de la mitología hindú. También es el espíritu de la tierra en la cultura Celta. Deba (en euskera) es una población de la costa Gipuzkoana situada en la desembocadura del río con el mismo nombre.
 
-Dispone de una amplia y extensa playa y una hermosa alameda a lo largo de la margen derecha de la ría. Existen dos parking, uno en el casco urbano en el extremo oeste de la playa donde es muy difícil encontrar un espacio para estacionar en verano. Otro parking un poco más alejado, (43º17’57,09’’N/2º21’21,91’’W), está situado en la margen izquierda de la ría donde es posible estacionar y pernoctar.
+Dispone de una amplia y extensa playa y una hermosa alameda a lo largo de la margen derecha de la ría. Existen dos parking, uno en el casco urbano en el extremo oeste de la playa donde es muy difícil encontrar un espacio para estacionar en verano. Otro parking un poco más alejado, (43º17'57,09''N/2º21'21,91''W), está situado en la margen izquierda de la ría donde es posible estacionar y pernoctar.
 
 Desde Deba se pueden realizar salidas en barco para observar la rasa mareal y hacer trekking con guías.
 
@@ -117,7 +111,7 @@ Merece la pena visitar el pequeño conjunto monumental del barrio de Astigarribi
 
 No dispone de playas extensas próximas al casco urbano aunque en su término municipal alberga la playa de Santurraran a unos metros de la muga con Bizkaia.
 
-Hay un parking en el puerto donde a veces se estacionan autocaravanas y no se han descrito problemas para pernoctar aunque el acceso es a través de calles estrechas y está bastante saturado en verano. La playa de Santurraran dispone de un extenso parking (43º19’12,28’’N/2º24’39,57’’W), en el que a pesar de que la PM de Mutriku a veces recomienda no permanecer en horario nocturno, muchas autocaravanas lo hacen sin que se hayan detectado mayores problemas.
+Hay un parking en el puerto donde a veces se estacionan autocaravanas y no se han descrito problemas para pernoctar aunque el acceso es a través de calles estrechas y está bastante saturado en verano. La playa de Santurraran dispone de un extenso parking (43º19'12,28''N/2º24'39,57''W), en el que a pesar de que la PM de Mutriku a veces recomienda no permanecer en horario nocturno, muchas autocaravanas lo hacen sin que se hayan detectado mayores problemas.
 
 Desde la playa de Santurraran, de arena gruesa con algunas piedras, se puede acceder con facilidad a pié a la población de Ondarroa.
 

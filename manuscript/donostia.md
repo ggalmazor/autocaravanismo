@@ -2,8 +2,6 @@
 
 ![La playa con nieve y al fondo el ayuntamiento](resources/img_2294.jpg)
 
-**La playa con nieve y al fondo el ayuntamiento**
-
 San Sebastián es un destino apetecible, bien sea para una escapada de fin de semana o como una etapa dentro de un recorrido más amplio. Perfectamente comunicada por autopista desde el Cantábrico, Francia, Mediterráneo o el Centro de la península, está al alcance de cualquier autocaravanista que desee conocer una de las ciudades más interesantes de la costa del Cantábrico.
 
 Los atractivos que ofrece San Sebastián satisfacen a través de todos los sentidos. La perspectiva que ofrece la bahía de la Concha desde diferentes lugares de observación como Igueldo al que se accede en un pintoresco funicular que parte de Ondarreta en un lugar cercano al Peine del Viento, conjunto arquitectónico que simboliza los elementos de la naturaleza: la tierra, el fuego, el viento y el agua. Un lugar privilegiado para contemplar el mar y recuperar el equilibrio emocional donde el horizonte y el mar se funden con el arte que expresa la obra de Chillida.
@@ -11,8 +9,6 @@ Los atractivos que ofrece San Sebastián satisfacen a través de todos los senti
 ![La Concha desde el palacio de Miramar](resources/laconcha300x221.jpg)
 
 ![En bicicleta delante de "Espacio Vacío" de Oteiza](resources/img_0065300x225.jpg)
-
-**La Concha desde el palacio de Miramar**
 
 **El paseo marítimo por las tres playas**
 
@@ -24,15 +20,11 @@ Desde el mismo puerto se accede al Paseo Nuevo que comienza en el Acuario y en e
 
 En este paseo se muestra con todo rigor la furia del Cantábrico en los días de temporal reclamando para sí el terreno arrebatado. El paseo Nuevo finaliza en la desembocadura del Urumea y nuestro paseo en la punta de Monpas, desde donde se divisa en el horizonte la línea de la costa y el mar abierto con unas puestas de sol llenas de color. Antes de llegar al final es obligado pasar por la tercera playa, la Zurriola, sobre la que se insertan los “Cubos Varados” de Moneo que albergan el Palacio de Congresos del Kursaal.
 
-**En bicicleta delante de "Espacio Vacío" de Oteiza**
-
 Entre el puerto y el Paseo Nuevo parten varios caminos que nos llevan al monte Urgull y al castillo de la Mota que es parte importante del complejo defensivo de la ciudad, cuya historia destaca el papel militar desempeñado hasta finales del siglo XIX y desde donde se obtienen vistas privilegiadas sobre la bahía. En su falda se puede recorrer el coqueto paseo de los Curas con una original perspectiva del puerto.
 
 Una oferta turística interesante es el paseo por la costa a bordo del catamarán “Ciudad de San Sebastián” que se toma en el muelle del puerto.
 
 ![Urgull y Alderdi Eder desde el Pico del Loro](resources/img_0040300x225.jpg)
-
-**Urgull y Alderdi Eder desde el Pico del Loro**
 
 **Lugares para visitar**
 
@@ -43,8 +35,6 @@ La parte vieja es también un lugar de culto que además de ser guardiana de las
 También se encuentra el museo de San Telmo, recientemente abierto después de un largo período de restauración y ampliación, cuyos fondos se exhiben en un convento dominico del siglo XVI en cuya iglesia, se encuentran expuestos los 11 grandiosos lienzos de Sert que narran historias de la vida de Guipúzcoa. La oferta museística de San Sebastián se completa con el acuario y, hasta hace poco tiempo, con el ahora cerrado por razones económicas, museo de Chillida Leku dedicado a la obra del escultor universal Eduardo Chillida.
 
 ![Fachada del restaurante Urepel en el paseo de Salamanca](resources/img_0072300x225.jpg)
-
-**Fachada del restaurante Urepel en el paseo de Salamanca**
 
 **La oferta cultural**
 
@@ -89,8 +79,6 @@ La zona de estacionamiento libre del campus y  donde era frecuente encontrar aut
 El horario de aplicación va de 9:00 a 13:30 y de 15:30 a 20:00 horas de lunes a viernes, los fines de semana y festivos es gratuito. Salvo los meses de vacaciones en la Universidad no es recomendable utilizar estas plazas para pernoctar.
 
 ![Área de autocaravanas de Berio](resources/img_0032300x225.jpg)
-
-**Área de autocaravanas de Berio**
 
 **Recursos específicos para autocaravanas**
 

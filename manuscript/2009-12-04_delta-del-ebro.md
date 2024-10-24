@@ -1,4 +1,4 @@
-# Delta del l’Ebre
+# Delta del l'Ebre
 **2009, 4 diciembre - 8 diciembre**
 
 ![Atardecer en el Delta](resources/img_4099.JPG)
@@ -9,7 +9,7 @@ En primer lugar debemos agradecer a Carme y Damià por la información previa qu
 
 El Delta del Ebro es un espacio formado por los sedimentos que aporta el río del mismo nombre, verdadero protagonista, en su conjunción con el mar Mediterráneo. Tiene una superficie de 320 km2.
 
-La riqueza biológica contrasta con la intervención del hombre que ha humanizado el territorio dedicándolo a la agricultura en gran parte. La creación en el año de 1983 del Parque Natural del Delta de l’Ebre trata de armonizar los valores naturales de la zona y la actividad económica de sus habitantes.
+La riqueza biológica contrasta con la intervención del hombre que ha humanizado el territorio dedicándolo a la agricultura en gran parte. La creación en el año de 1983 del Parque Natural del Delta de l'Ebre trata de armonizar los valores naturales de la zona y la actividad económica de sus habitantes.
 
 Las características del terreno, el clima, su paisaje y la diversidad biológica le convierten en un destino privilegiado para el turista amante de la naturaleza. Si este turista utiliza la autocaravana como medio de transporte y alojamiento dispone de mayores oportunidades para disfrutar de un viaje inolvidable practicando una forma de turismo sostenible si, además, se respetan todas las limitaciones inherentes a un parque natural protegido.
 
@@ -23,25 +23,19 @@ La llanura del terreno, los caminos para bicicletas y las carreteras con pocos o
 
 ![Casa de la Fusta, punto de información del parque.](resources/img_4177.JPG)
 
-**Casa de la Fusta, punto de información del parque.**
-
 **Recursos para autocaravanas**
 
 Salvo en las áreas naturales protegidas de la playa de Trabucador y la margen izquierda de la desembocadura del Ebro en las proximidades del camping de la urbanización Riumar, donde está prohibida la pernocta por dudosas razones de protección medioambiental, se puede pernoctar en cualquier lugar donde se permita estacionar. En especial:
 
-**L’Ampolla, junto a la playa, 40º47’50,45’’N / 0º42’3,40’’E**
-
-**Deltebre (Urbanización Riumar), paseo marítimo, 40º43’35,77’’N / 0º50’39,50’’E**
-
-**La Casa de Fusta, 40º39’29,10’’N / 0º40’29,22’’E**
-
-**Poble Nou del Delta, 40º38’44,82’’N / 0º41’18,42’’E**
-
-Sant Carles de la Rápita, Parc d’El Garbi, 40º36’55,86’’N / 0º35’31,56’’E
+- L'Ampolla, junto a la playa, 40º47'50,45''N / 0º42'3,40''E
+- Deltebre (Urbanización Riumar), paseo marítimo, 40º43'35,77''N / 0º50'39,50''E
+- La Casa de Fusta, 40º39'29,10''N / 0º40'29,22''E
+- Poble Nou del Delta, 40º38'44,82''N / 0º41'18,42''E
+- Sant Carles de la Rápita, Parc d'El Garbi, 40º36'55,86''N / 0º35'31,56''E
 
 Hay un área para autocaravanas en Els Muntells, dispone de un acceso a las alcantarillas levantando una tapa en el suelo y un grifo roscado. El costo por pernoctar y vaciar es de 6 euros y de 3 solo por vaciar y llenar los depósitos. Un empleado se encarga de ir a cobrar los servicios.
 
-También se puede vaciar en la estación de servicio CEPSA de Sant Jaume d’Enveja, Avda. Catalunya, 208, 40º42’22,34’’N / 0º43’43,29’’E, dispone de rejilla para el vertido de agua procedente del lavado de coches, váter exterior y grifo de agua limpia.
+También se puede vaciar en la estación de servicio CEPSA de Sant Jaume d'Enveja, Avda. Catalunya, 208, 40º42'22,34''N / 0º43'43,29''E, dispone de rejilla para el vertido de agua procedente del lavado de coches, váter exterior y grifo de agua limpia.
 
 ![Cormoranes en la bahía de les Alfacs, junto a las salinas.](resources/img_4132.JPG)
 
@@ -49,15 +43,13 @@ También se puede vaciar en la estación de servicio CEPSA de Sant Jaume d’Env
 
 Como es lógico, la gastronomía local se basa en los arroces, negro (con sepia en su tinta), a banda, caldoso, paellas, etc. Los mariscos del Delta son excelentes en especial los langostinos, las ostras, mejillones.
 
-Hay una abundante y excelente oferta de restauración, nosotros probamos y podemos recomendar Can Machino, en Major, 129 de Els Muntells. Anguila amb suc, deliciosa bien especiada, arroz negre, cafés y vino para dos personas 38,00 euros. También tiene una justa fama el Restaurante l’Estany, situado al lado de la Casa de la Fusta, que cultiva la cocina local tradicional, destino de muchos autocaravanistas.
+Hay una abundante y excelente oferta de restauración, nosotros probamos y podemos recomendar Can Machino, en Major, 129 de Els Muntells. Anguila amb suc, deliciosa bien especiada, arroz negre, cafés y vino para dos personas 38,00 euros. También tiene una justa fama el Restaurante l'Estany, situado al lado de la Casa de la Fusta, que cultiva la cocina local tradicional, destino de muchos autocaravanistas.
 
-Los mejillones y las deliciosas almejas (20,00€ el kilo) las compramos en la depuradora que hay en la carretera de Sant Carles a Poble Nou, 40º37’35’’N / 0º37’54’’E.
+Los mejillones y las deliciosas almejas (20,00€ el kilo) las compramos en la depuradora que hay en la carretera de Sant Carles a Poble Nou, 40º37'35''N / 0º37'54''E.
 
-Los langostinos en el almacén a la salida de l’Ampolla, a 700 metros del cruce con la carretera en dirección a Deltebre, también se puede encontrar buen marisco a precio razonable en la depuradora Devimar. El mercado de Sant Carles no es muy grande pero está muy bien surtido de hortalizas, fruta, pescado y marisco.
+Los langostinos en el almacén a la salida de l'Ampolla, a 700 metros del cruce con la carretera en dirección a Deltebre, también se puede encontrar buen marisco a precio razonable en la depuradora Devimar. El mercado de Sant Carles no es muy grande pero está muy bien surtido de hortalizas, fruta, pescado y marisco.
 
 Una vez presentado el escenario, pasamos a relatar las excursiones realizadas con base, principalmente, en Sant Carles de la Rápita, lugar bonito, tranquilo y seguro para pernoctar o Poble Nou del Delta:
-
-Cormoranes en la bahía de les Alfacs, junto a las salinas.
 
 **Reserva Natural Parcial de la Banya**
 
@@ -73,9 +65,9 @@ Una excursión memorable desde Els Muntells hasta la Tancada donde pudimos obser
 
 **La Encanysada y la casa de Fusta**
 
-Desde Sant Carles un paseo de 30 kilómetros para observar las numerosas especies que habitan en esta laguna rodeada de espadaña y cañizos. La casa de Fusta es una construcción emblemática de los años 20 del pasado siglo que alberga un museo y el centro de información del Parque Natural del Delta del l’Ebre.
+Desde Sant Carles un paseo de 30 kilómetros para observar las numerosas especies que habitan en esta laguna rodeada de espadaña y cañizos. La casa de Fusta es una construcción emblemática de los años 20 del pasado siglo que alberga un museo y el centro de información del Parque Natural del Delta del l'Ebre.
 
-Dispone de un estacionamiento, restaurante y una torre de observación a la laguna de l’Encanysada.
+Dispone de un estacionamiento, restaurante y una torre de observación a la laguna de l'Encanysada.
 
 **Ruimar y desembocadura**
 

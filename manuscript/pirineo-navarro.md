@@ -16,8 +16,6 @@ La pernocta en la autocaravana no presenta ningún problema en una zona que no e
 
 ![Parking en el estacionamiento del pantano de Irabia](resources/parkingirati300x225.jpg)
 
-**Parking en la estación patatera de Otsagabia**
-
 **Valle de Salazar**
 
 Comenzamos la visita pernoctando junto a otra autocaravana y dos furgonetas en el fondo del parking de la estación patatera de Otsagabia, Lugar tranquilo donde los haya, dormimos plácidamente.
@@ -27,8 +25,6 @@ Otsagabia es la capital de valle de Salazar, testigo de las guerras realistas de
 Para los amantes de la gastronomía es de destacar el cordero y la txistorra que el carnicero fabrica artesanalmente. El queso en el valle de Salazar es de oveja latxa, similar al de Idiazabal pero diferente al del vecino valle del Roncal.
 
 **Selva de Irati**
-
-**Parking en el estacionamiento del pantano de Irabia**
 
 La primera excursión la realizamos al embalse de Irabia en pleno bosque Irati. La selva de Irati es una de las mayores y mejor conservadas manchas de hayas (fagus sylvática) del sur de Europa. El parking está situado a 23 kilómetros de Otsagabia por la NA2012, junto a las ruinas de unos acuartelamientos de principios del S.XIX y de la ermita de Nuestra Señora de las Nieves.
 
@@ -60,8 +56,6 @@ Llegamos a tiempo de comer en la sidrería Kixkia una excelente menestra y un bu
 
 ![Cuevas del akelarre en Zugarramurdi](resources/cuevatrasera300x225.jpg)
 
-**Parking en el Señorío de Bertiz**
-
 **Valle del Baztán**
 
 Nuestra intención era pasar a Francia por Belagua y comprar queso de Irati en una borda francesa al lado de la frontera y visitar las gargantas de Kakueta, pero el cierre de la carretera a Francia y la niebla que domina el puerto de Larra nos hace desistir y decidimos realizar una visita al valle del Baztán.
@@ -84,8 +78,6 @@ Hay muestras de caleras y de la actividad carbonera cuya huella se puede adverti
 
 **Las cuevas de Zugarramurdi**
 
-**Cuevas del akelarre en Zugarramurdi**
-
 Salimos por la tarde en dirección a la frontera con Francia haciendo una parada en Elizondo, la capital del valle del Baztán, para recorrer el mercadillo donde cenamos una especie de torta de maíz con queso joven de vaca (talo) y comprar algunas golosinas del excelente chocolate de casa Malkorra. Actividad altamente perjudicial para la salud.
 
 Llagamos al aparcamiento de Zugarramurdi donde pernoctamos sin problemas y en paz a pesar de que está situado junto a uno de los mayores restaurantes de la pequeña población fronteriza dedicada anteriormente al contrabando y en la actualidad a suministrar a los vecinos del norte, alcohol (pastis), tabaco y pitxiak.
@@ -93,8 +85,6 @@ Llagamos al aparcamiento de Zugarramurdi donde pernoctamos sin problemas y en pa
 A la mañana siguiente visitamos las cuevas. Una gran cavidad en la roca caliza donde según la tradición se celebraban aquelarres en un prado frente a la cueva las noches de luna llena. Al parecer, las aguas que se filtran en las paredes de la cueva contienen fósforo y calcio, las brujas desnudas se impregnaban el cuerpo que brillaba en la noche. El recorrido por el recinto es espectacular y nos lleva un par de horas.
 
 ![Una calera en Bertiz](resources/calera300x225.jpg)
-
-**Una calera en Bertiz**
 
 **Otra vez el Señorío de Bertiz**
 

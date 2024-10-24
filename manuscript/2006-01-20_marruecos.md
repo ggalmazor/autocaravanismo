@@ -5,8 +5,6 @@
 
 **Febrero 2006**
 
-**Un paisaje lunar**
-
 Los protagonistas: dos jóvenes jubilados, Charo y Arsenio que pasan algo de los sesenta, y una autocaravana Moncayo Nova Pulsar del 2002 (Fiat Ducatto 2,8 JTD) que cuando partió de Tánger el 20 de Enero tenía 70.131 Kmtrs. Y cuando regresamos al mismo punto, el 11 de Febrero, el cuentakilómetros marcaba 73.019. Hemos recorrido 2.888 kilómetros sin contar los otros 2 mil largos desde nuestro domicilio a Tarifa y regreso.
 
 ![Con Ahmed, el guía, al fondo la medina de Fez](resources/pict4266300x222.jpg)
@@ -20,8 +18,6 @@ Leemos los relatos publicados en VEA, entramos en contacto con la Embajada de Ma
 Como guía básica compramos la Lonely Planet, el mapa Michelín 959 y cargamos la PDA con el OziExplorer y los mapas 1:250.000 de Marruecos digitalizados y calibrados cuya utilidad fue indiscutible.
 
 Confeccionamos un recorrido: Asilah, Mequinez, Fez, Merzouga, Ouarzazate, Marrakech, Essaouira, Casa y Rabat, que al final cumplimos con el añadido del valle del Draá hasta Zagora y que comprende una variedad de aspectos paisajísticos, históricos y sociales.
-
-Con Ahmed, el guía, al fondo la medina de Fez
 
 **Las medinas**
 
@@ -79,8 +75,6 @@ Mequinez, camping Agdal. Visitamos el mausoleo de Muley Ismail, los graneros del
 
 Mequinez, camping Agdal. Pagamos 153 DH por dos días, los bloques sanitarios inutilizables que es lo mas frecuente en los camping. Podemos vaciar y llenar depósitos.
 
-**Yacimiento arqueológico de Volúbilis**
-
 Visitamos las ruinas de Volúbilis ayudados por un sol espléndido. El foro y los mosaicos que conservan algunas de las viviendas hacen interesante a las ruinas de uno de los establecimientos romanos en África. Las vistas del valle son espectaculares.
 
 Continuamos viaje con la visita a Mulay Idriss y por una estrecha carretera llegamos a Fez donde nos alojamos en el camping “Le Diamant Vert”.
@@ -92,8 +86,6 @@ Compramos algunas verduras a un vendedor ambulante en la carretera para comproba
 ![Los curtidores del zoco en Fez](resources/pict4287300x222.jpg)
 
 ![Una grúa para todo.](resources/pict4319300x222.jpg)
-
-**Artesanía local.**
 
 **Fez (24.01.2006)**
 
@@ -109,8 +101,6 @@ Por encima de la proyección turística de los negocios de la medina, sus gentes
 
 Cuando hablamos de un zoco nos referimos a un mercado pero en las medinas de las grandes ciudades, no podemos
 
-**Los curtidores del zoco en Fez**
-
 hablar de un mercado en general sino del mercado de las babuchas, o el de los tejidos o el de las especias, la fruta o el cuero.
 
 Comemos los tres en el restaurante El Blida, cuscús, brochetas, pastilla y ensalada marroquí, excelente. (600 DH)
@@ -123,8 +113,6 @@ En dirección al sur la carretera atraviesa algunos de los mejores paisajes del 
 
 Atravesando Midelt y Rich, llegamos a las gargantas del Ziz después de pasar por el túnel del Legionario. Atravesamos Er Rachidia y la  “Source Bleue” de Meski y nos internamos en los palmerales del Oued Ziz. Nos alojamos en el camping Tissirt en pleno palmeral.
 
-**Una grúa para todo.**
-
 **Oued Ziz (26-01-2006)**
 
 Camping Tissirt, Km. 30 de la carretera de Efroud. El termómetro marca tres grados, ha llovido toda la noche por primera vez en tres años. El camping está situado en una zona arenosa tras una pista de tierra de unos ciento cincuenta metros con una fuerte pendiente. Es una auténtica trampa para la AC que no puede salir por sus propios medios debido al barro que se ha formado con la lluvia.
@@ -134,8 +122,6 @@ Después de consultar con Europ assistance y Jorge García de Boker Segur, llama
 Continuamos el camino hacia el sur pasando por Erfoud donde, según sus propios habitantes, se producen los mejores dátiles de Marruecos y llegamos a las dunas del Erg Chebbi en Merzouga a través de Rissani.
 
 ![Caminando por las dunas del Erg Chevi.](resources/pict4389300x222.jpg)
-
-**Caminando por las dunas del Erg Chevi.**
 
 **Merzouga (27.01.2006)**
 
@@ -187,9 +173,7 @@ Camping Municipal de Ouarzazate. Llevamos recorridos 1.72  km. Intentamos recarg
 
 Continuamos el viaje hacia Zagora a través del Tizi-n-Tiniffift rebasando la cota de 1660  metros; descendemos hacia Agdz (se pronuncia Agadez). Ante nuestros ojos aparece el inmenso palmeral del Oued Draá. En el descenso soportamos un fuerte viento que nos hace redoblar las precauciones, en el horizonte se vislumbra una nube que nos indica una tormenta de arena.
 
-Nos alojamos en el camping “L’Oasis Enchanteé” en El Arroumiat a dos kilómetros de Zagora. Un paseo de una hora por palmeral al atardecer nos relaja y nos pone en buena disposición para dormir. Estamos solos en el camping.
-
-**Zagora desde el Jbel Zagora, Qued Draa**
+Nos alojamos en el camping “L'Oasis Enchanteé” en El Arroumiat a dos kilómetros de Zagora. Un paseo de una hora por palmeral al atardecer nos relaja y nos pone en buena disposición para dormir. Estamos solos en el camping.
 
 **Zagora (31-01-2006)**
 
@@ -203,8 +187,6 @@ Regresamos hacia Ouarzazate atravesando otra vez el Tizi-n-Tiniffift con la inte
 
 ![Por el impresionante Tzi-n-Tichka](resources/pict4513300x222.jpg)
 
-**Ksar de Aït-Ben-Haddou**
-
 **Aït-Ben-Haddou (01-02-2006)**
 
 Son las siete de la mañana y el termómetro marca menos de cuatro grados, amanece soleado. Nos dirigimos a la Casbah, pero el río ha crecido y es necesario utilizar un asno para vadearlo. Mientras estudiamos la forma de aproximarnos se nos acerca un anciano con gafas de diseño y capa berebere sometiéndonos al ritual que vamos conociendo poco a poco: “Bon Jour”, “Sa va?”, “Francais?”, “Oh! Espagnol, du Madrid?”, “Oh! Pais Basque!, Soyez bienvenues!”, así es como se te pega un falso guía que pretende llevarse una propina por una explicación que generalmente no es necesaria y por un trabajo que no hemos solicitado ni siquiera ha sido ofrecido sino impuesto. Este guía se conforma con los 40 DH que le ofrezco.
@@ -212,8 +194,6 @@ Son las siete de la mañana y el termómetro marca menos de cuatro grados, amane
 Desistimos atravesar el río y visitar la Casbah a pesar de que los guardianes de los asnos, como quien no quiere la cosa, han traído uno digno de mi tamaño y nos conformamos con contemplar los edificios perfectamente armonizados con el entorno que exponen una forma de vivir de una sociedad antigua pero actual.
 
 Este conjunto de Casbashs es uno de los mejores conservados de toda la región del Atlas ya que ha recibido
-
-**Por el impresionante Tzi-n-Tichka**
 
 financiación por haber sido escenario de una veintena de películas y que cuenta con la proximidad de los estudios de cine de Oauarzazate donde se han rodado varias películas de gran presupuesto como Gladiador. Estos estudios se pueden visitar cuando no se rueda una película.
 
@@ -225,9 +205,7 @@ Pasamos el impresionante Tizi-n-Tichka, que había estado cerrado un par de día
 
 ![Las cabras subidas al los arganieres.](resources/pict4582300x222.jpg)
 
-**<Danzantes en la plaza Djemaa El-Fnag**
-
-**Marrakech 31º37’26,76’’N / -7º59’46,32’’W (02-02-2006)**
+**Marrakech 31º37'26,76''N / -7º59'46,32''W (02-02-2006)**
 
 El famoso monumento de la Koutoubia, al suroeste de la  plaza Djemaa el-Fnag, con su minarete de 70 metros domina la ciudad. Construida por Yusuf Al Mansur (1184-1199), es el mas antiguo y mejor conservado de los tres minaretes mas famosos que se completan con la Tour de Hassan en Rabat y la Giralda de Sevilla.
 
@@ -243,11 +221,7 @@ Fue una escena muy desagradable, la del tendero y la del guía. Comemos en el re
 
 A media tarde acudimos al hammam El Bacha, baño de vapor, enjabonado, “peeling” con un guante de crin y un masaje relajante nos deja como nuevos y la piel como la de sendos infantes. Este servicio cuesta 700 DH, incluida la inevitable propina.
 
-Son las ocho de la mañana y el termómetro marca nueve grados, luce el sol. Tomamos el camino de Essaouira. Cuando
-
-**Las cabras subidas al los arganieres.**
-
-nos faltan unos treinta kilómetros para llegar observamos como unas cabras están subidas a las ramas de unos árboles que no conocemos. Esto nos hace recordar algo que habíamos leído en Lonely Planet acerca de un árbol de cuyas simientes de extrae un aceite que tiene unas propiedades nutricionales y cosméticas muy interesantes. Se trata del argán.
+Son las ocho de la mañana y el termómetro marca nueve grados, luce el sol. Tomamos el camino de Essaouira. Cuando nos faltan unos treinta kilómetros para llegar observamos como unas cabras están subidas a las ramas de unos árboles que no conocemos. Esto nos hace recordar algo que habíamos leído en Lonely Planet acerca de un árbol de cuyas simientes de extrae un aceite que tiene unas propiedades nutricionales y cosméticas muy interesantes. Se trata del argán.
 
 Al pasar por el pequeño pueblo de El Hanchane vemos que hay un discreto cartel que anuncia la cooperativa de mujeres El Kheir. En el local, unas sesenta mujeres se dedican a extraer aceite de las pequeñas nueces del argán. El proceso, en cadena de producción, es de lo más primitivo. Un grupo de mujeres van retirando una a una, a mano, la envoltura seca y carnosa del fruto que sirve de alimento a las cabras y extraen la nuez del tamaño de una almendra y con la forma de una bellota. Otro grupo de mujeres van rompiendo con un canto rodado la cáscara y separando una a una la semilla.
 
@@ -260,8 +234,6 @@ El argán (Argania spinosa L) es un árbol endémico de la zona de Essaouira y A
 A media tarde llegamos a Ida Ourgoud a 18 kilómetros de Essaouira y nos alojamos en el camping “Le Calme”, excelentemente preparado en un arganier y el entorno y las instalaciones hacen honor a su nombre.
 
 ![La playa de Essaouira](resources/pict4586300x222.jpg)
-
-**La playa de Essaouira**
 
 **Essauira (04-02-2006)**
 
@@ -280,8 +252,6 @@ Son las siete y media y el termómetro marca casi diecinueve grados. Partimos ha
 ![Grandioso](resources/pict4603222x300.jpg)
 
 ![Rabat, Mausoleo de Hassan](resources/pict4654222x300.jpg)
-
-**Grandioso**
 
 **Casablanca (08-02-2006)**
 
@@ -303,8 +273,6 @@ Nos alojamos en el camping de “La Plage” y comentando con un compañero auto
 
 Tomamos un “Grand Taxi” a Rabat (30 DH) y visitamos la  torre Hassan que es el minarete de una mezquita construida
 
-**Rabat, Mausoleo de Hassan**
-
 en 1195. El proyecto inicial de llegar hasta los 60 metros fue abandonado quedando en unos bellísimos 40  metros. Junto con el mausoleo de Mohamed V, ambos constituyen los monumentos más representativos de Rabat.
 
 Hacemos una visita al departamento de cartografía donde adquirimos algunos mapas de Marruecos a escala 1:250.000. El personal de oficina despliega una considerable desconfianza a los potenciales compradores de cartografía extranjeros.
@@ -318,8 +286,6 @@ Visitamos el museo arqueológico. Un pequeño museo poco dotado de medios que ex
 Continuamos el viaje y llegamos a Asilah. El parking de la muralla está vacío, nos situamos en una campa frente al puerto junto a una docena de autos. Nos comentan que hacía una semana que cerca de doscientas autos han organizado tal atasco que las autoridades locales han prohibido pernoctar en la muralla.
 
 ![Parking de Asilah, han echado a las autocaravanas](resources/pict4679300x222.jpg)
-
-**Parking de Asilah, han echado a las autocaravanas**
 
 **Asilah (10-02-2006)**
 
@@ -339,8 +305,4 @@ Estamos fascinados por el viaje, solo tenemos claro una cosa: queremos volver pa
 
 ![](marruecos2010.jpg)
 
-**Vida en las montañas plegadas del Atlas**
-
 Marruecos es uno de los destinos míticos para los autocaravanistas europeos. Un destino que juega con diferentes sensaciones en las que el reto, el misterio y la curiosidad se entremezclan. Además, el clima y el poder adquisitivo son los motores que impulsan a unos miles de jubilados europeos a prolongar estancias de unos meses en la temporada que comienza en octubre y finaliza en mayo del año siguiente.
-
-**Marruecos2010**

@@ -9,8 +9,6 @@ Este viaje lo hemos preparado basándonos en los relatos de Pepe Hermo “Pepiñ
 
 ![Inmensos palacios y jardines](resources/img_0234300x225.jpg)
 
-**Inmensos palacios y jardines**
-
 El itinerario previsto atraviesa Francia por el eje de París, desde Hendaya, y Bélgica para comenzar la visita en Aachen (Aquisgrán). Contamos con la ayuda inestimable de una PDA hx2490, con el TomTom 6 y los mapas de Europa, incluidos los países del Este.
 
 Las etapas y los puntos de pernocta han sido planificados en parte por la experiencia de Pepiño y Bikote, en parte por la guía ADAC Stellplatz Fürrer y complementado con la información sobre camping de la Embajada de Polonia en España. Todos los puntos han sido cotejados con la ayuda del Google Hearth, convertidos en POIs y transferidos al TomTom con el programa gratuito Tyre.
@@ -23,9 +21,9 @@ Es imposible describir los lugares visitados con la maestría de Pepiño, Bikote
 
 **Acercándonos al destino, 14.05.2007.**
 
-En la primera etapa del viaje, pernoctamos en el área para AC de Villaines-les-Rochers (47º13’16.896”N/0º29’43.548”E). Es un lugar bonito, seguro y tranquilo. Nos hemos propuesto hacer etapas de un máximo de 600 km evitando las autopistas de pago. Sin embargo, el tráfico y la configuración de la N10 entre Hendaya y la salida 10 obligan a tomar la autopista pues de otro modo el recorrido se hace eterno por las innumerables travesías de población.
+En la primera etapa del viaje, pernoctamos en el área para AC de Villaines-les-Rochers (47º13'16.896”N/0º29'43.548”E). Es un lugar bonito, seguro y tranquilo. Nos hemos propuesto hacer etapas de un máximo de 600 km evitando las autopistas de pago. Sin embargo, el tráfico y la configuración de la N10 entre Hendaya y la salida 10 obligan a tomar la autopista pues de otro modo el recorrido se hace eterno por las innumerables travesías de población.
 
-En la segunda etapa llegamos al área para AC de Babay gracias a los POI del TomTom (50º18’0.144”N/03º47’43.836”E), cerca de la frontera con Bélgica.
+En la segunda etapa llegamos al área para AC de Babay gracias a los POI del TomTom (50º18'0.144”N/03º47'43.836”E), cerca de la frontera con Bélgica.
 
 15.05.2007. La tercera etapa no sitúa en el área de Aachen (Aquisgrán). Está situada a quince minutos a pié del centro histórico de la ciudad. Es un lugar perfectamente acondicionado para etapas breves, sombra, suelo llano y con hierba entre celosías de cemento. Un par de baños y un par de duchas, así como lugares para el vaciado y llenado de depósitos cómodo y accesible. Estamos alojados un par de docenas de autocaravanas y unas cuatro o cinco caravanas.
 
@@ -35,7 +33,7 @@ Aquisgrán ha tenido un papel preponderante en la historia de Europa. Situada ce
 
 ![Ambiente festivo en las calles de Colonia](resources/img_0046300x225.jpg)
 
-17.05.2007, En Köln amanece lloviendo, en el parking de la calle  Adam-Stegarwald-Strasse (50º57’03.29”N/6º59’27.63”E), donde nos alojamos sin problemas guiados por el relato de Pepiño.
+17.05.2007, En Köln amanece lloviendo, en el parking de la calle  Adam-Stegarwald-Strasse (50º57'03.29”N/6º59'27.63”E), donde nos alojamos sin problemas guiados por el relato de Pepiño.
 
 Es indudable que Colonia posee uno de los edificios religiosos más impresionantes de Europa, la  Kölner Dom. A la majestuosidad de las agujas de las torres y su estilo gótico francés, hay que añadir los innumerables tesoros que contiene: las vidrieras, el crucifijo de Gero, la sillería del coro y el sepulcro de los tres Reyes Magos.
 
@@ -43,7 +41,7 @@ Los más de quinientos escalones que llevan a la torre nos dejan las piernas par
 
 18.05.2007. Salimos temprano hacia Brühl, estacionamos en el parking del palacio de los Ausburgo (Schloss Augustusburg), patrimonio mundial de la UNESCO del que visitamos los impresionantes jardines de estilo francés.
 
-Partimos hacia Hannover después de comer. Llegamos a media tarde con sol. Estacionamos en MittelStrasse (52º22’09.33′N/9º43’36.43”E), en un lugar bonito y tranquilo. Con las bicis hacemos un largo recorrido por el borde de un lago.
+Partimos hacia Hannover después de comer. Llegamos a media tarde con sol. Estacionamos en MittelStrasse (52º22'09.33′N/9º43'36.43”E), en un lugar bonito y tranquilo. Con las bicis hacemos un largo recorrido por el borde de un lago.
 
 19.05.2007. En Hannover otra vez el tiempo amenaza lluvia y nos disponemos a recorrer el Alstadt a pié. Como es jueves se ha montado un curioso mercadillo en el que se ofrecen todo tipo de objetos. Nos parecen interesantes la Marktkirche y el Neues Rathaus en cuyo ascensor curvado montamos para acceder a un mirador desde donde se divisa una bonita panorámica de la ciudad.
 
@@ -53,9 +51,9 @@ Nuestra impresión es que Hannover es una ciudad que proporciona una alta calida
 
 ![Integrar en el entorno al visitante](resources/img_0034225x300.jpg)
 
-20.05.2007. En Hildesheim aparcamos cerca de centro (52º8’19.42’’N/9º57’15’’E) y visitamos a bordo de nuestras bicicletas el núcleo comercial. La Markplatz felizmente reconstruida en 1980 cuyo único elemento original es una fuente situada frente al Rathauss. La St.Michaeliskirche, Patrimonio mundial de la UNESCO estaba cerrada al público por obras. De la visita a la Dom, destacan los impactantes bajorrelieves originales de la puerta, de 5 metros de altura que se salvaron milagrosamente del bombardeo aliado del 22 de marzo de 1945.
+20.05.2007. En Hildesheim aparcamos cerca de centro (52º8'19.42''N/9º57'15''E) y visitamos a bordo de nuestras bicicletas el núcleo comercial. La Markplatz felizmente reconstruida en 1980 cuyo único elemento original es una fuente situada frente al Rathauss. La St.Michaeliskirche, Patrimonio mundial de la UNESCO estaba cerrada al público por obras. De la visita a la Dom, destacan los impactantes bajorrelieves originales de la puerta, de 5 metros de altura que se salvaron milagrosamente del bombardeo aliado del 22 de marzo de 1945.
 
-Después de comer salimos hacia Wolfenbütel donde estacionamos en el parking del castillo. La visita al pueblo es una delicia cada casa compite con la de al lado en belleza y originalidad. La idea primitiva era quedarnos a pernoctar en el parking del castillo, pero como estábamos solos nos pareció un poco llamativo y como quedaban un par de horas de luz, decidimos continuar hasta Wenzlow donde pernoctamos sin problemas en una de sus calles (52º17.934’N/12º26.774’E).
+Después de comer salimos hacia Wolfenbütel donde estacionamos en el parking del castillo. La visita al pueblo es una delicia cada casa compite con la de al lado en belleza y originalidad. La idea primitiva era quedarnos a pernoctar en el parking del castillo, pero como estábamos solos nos pareció un poco llamativo y como quedaban un par de horas de luz, decidimos continuar hasta Wenzlow donde pernoctamos sin problemas en una de sus calles (52º17.934'N/12º26.774'E).
 
 21.05.2007. Llegamos al parking de autocaravanas de los jardines de Sanssouci, en Potsdam, sobre las 10 de la mañana (10 euros, cuatro horas, 2 euros cada hora suplementaria y 10 euros la noche de 20:00 a 08:00 horas).
 
@@ -67,9 +65,7 @@ En el Altstadt se encuentran las puertas del S.XVIII y el pintoresco barrio hola
 
 ![En el interior de la cúpula del Bundestag](resources/img_0249225x300.jpg)
 
-**En el interior de la cúpula del Bundestag**
-
-21.05.2007. Salimos después de comer y llegamos al área de pernocta de ChausseeStrasse en Berlín (52º32’15.75’’N/13º22’21.42’’E) a media tarde. Se trata de un área privada de pago, como la de Aachen aunque no tan bien acondicionada, en la que se albergan una treintena de autocaravanas y un par de caravanas. Dispone de váteres y duchas  y unas plazas muy justas, pero situada en el centro de Berlín.
+21.05.2007. Salimos después de comer y llegamos al área de pernocta de ChausseeStrasse en Berlín (52º32'15.75''N/13º22'21.42''E) a media tarde. Se trata de un área privada de pago, como la de Aachen aunque no tan bien acondicionada, en la que se albergan una treintena de autocaravanas y un par de caravanas. Dispone de váteres y duchas  y unas plazas muy justas, pero situada en el centro de Berlín.
 
 Tomamos las bicicletas y nos vamos directamente a visitar el Bundestag, desde cuya cúpula se divisa una magnífica perspectiva. A pesar de salir temprano tuvimos que aguantar una hora de cola pero mereció la pena. El resto de la mañana la dedicamos a tomar contacto con una gran ciudad en la que la bicicleta es un medio de transporte muy importante. Al circular por sus calles nos permite tomar el pulso a una ciudad cuya trayectoria en los últimos 70 años ha sufrido una serie de cambios importantes al ser escenario de unos acontecimientos claves en la historia de Europa.
 
@@ -79,13 +75,11 @@ Al día siguiente volvemos a tomar las bicicletas temprano y pedaleamos a travé
 
 No es suficiente con relatar las impresiones de los lugares visitados, la propia ciudad es el objetivo y la clave es su muro. Un muro que ha sido el protagonista de un profundo drama dentro de la llamada guerra fría y que sólo visitando el lugar nos podemos dar cuenta de su dimensión y significado al margen o a pesar del folklore turístico montado que se escenifica en el propio CP Charly o en la puerta de Brandenburgo.
 
-Una vez concluida la visita a Berlín nos desplazamos hasta Cottbus donde hay un extenso lugar de estacionamiento señalado en los POIs de CCinfos (51º45.345’N/14º19.012’E).
+Una vez concluida la visita a Berlín nos desplazamos hasta Cottbus donde hay un extenso lugar de estacionamiento señalado en los POIs de CCinfos (51º45.345'N/14º19.012'E).
 
 ![La plaza central de Wroklaw](resources/img_0336300x225.jpg)
 
-**La plaza central de Wroklaw**
-
-24.05.2007. Llegamos al camping nr 117 en Paderewskiego, 35 en Wroklaw, (51º07’05.77’’N/17º05’24.79’’E). Se trata de un camping con pocas instalaciones pero con espacios inmensos, hierba bien cuidada y abundante sombra arbolada.
+24.05.2007. Llegamos al camping nr 117 en Paderewskiego, 35 en Wroklaw, (51º07'05.77''N/17º05'24.79''E). Se trata de un camping con pocas instalaciones pero con espacios inmensos, hierba bien cuidada y abundante sombra arbolada.
 
 Un tranvía nos lleva al centro de la ciudad que visitamos. Es difícil expresar la impresión que nos ha causado. En el centro, descuidado, coexisten edificios medievales junto a bloques de cemento típicos de la época en que Polonia pertenecía a la esfera soviética. Hay cantidad de iglesias, de fábrica de ladrillo, suntuosas y recargadas pero oscuras y sin la grandiosidad de las catedrales occidentales.
 
@@ -93,7 +87,7 @@ Es el día del Corpus Christi y es festivo. En todas las iglesias se celebran mi
 
 25.05.2007. Casi todo el camino entre Brelavia y Cracovia transcurre por una autopista, gratuita excepto un tramo al final (4 euros). Pero entre el mal estado del piso y las infinitas obras que se realizan y los consiguientes atascos empleamos casi todo el día para llegar.
 
-El camping es el Krakowianka, en Borek Talecki, (50º0’54.70’’N/19º55’31.22’’E) y está situado en las afueras, en una zona verde y arbolada. Está medio vacío y aunque la recepción es algo mas moderna que el anterior y hasta hablan algo de inglés, tiene menos servicios, eso sí, las instalaciones están limpias y cuidadas. Sin embargo carece de servicios para autocaravanas. El vaciado de depósitos es casi inaccesible, así como el vaciado del váter que carece de grifo para la limpieza del casette y es imposible encontrar un grifo de agua para llenar el depósito.
+El camping es el Krakowianka, en Borek Talecki, (50º0'54.70''N/19º55'31.22''E) y está situado en las afueras, en una zona verde y arbolada. Está medio vacío y aunque la recepción es algo mas moderna que el anterior y hasta hablan algo de inglés, tiene menos servicios, eso sí, las instalaciones están limpias y cuidadas. Sin embargo carece de servicios para autocaravanas. El vaciado de depósitos es casi inaccesible, así como el vaciado del váter que carece de grifo para la limpieza del casette y es imposible encontrar un grifo de agua para llenar el depósito.
 
 26.05.2007. A pesar del catarro y del consumo desaforado de pañuelos y pastillas Juanola, nos decidimos a visitar en centro de la ciudad cuyo casco antiguo ha sido declarado patrimonio mundial de la UNESCO. El tranvía 8 nos deja en pleno centro. Se percibe que esta ciudad tiene un número mayor de visitantes y que tanto el comercio como los servicios están orientados al turismo.
 
@@ -106,8 +100,6 @@ Un poco mas al oeste está situado el barrio de judío Kazimierz, lugar donde se
 Tanto en Breslavia (Wroklaw) como en Cracovia (Krakow) las iglesias disponen de unos excelentes órganos y podemos comprobar que también de unos buenos intérpretes. Nos retiramos después de una comida en un restaurante del centro (22 euros con el café).
 
 ![Torres sobre el Vístula](resources/img_0344300x225.jpg)
-
-**Torres sobre el Vístula**
 
 27.05.2005. Tardamos bastante en llegar al santuario mariano de Czestochowa porque la salida de Cracovia es complicada y por la circulación dominguera. También nos cuesta encontrar la basílica porque no hay muchas indicaciones en la calle, por fin un letrero nos indica “Jasna Gora” y conseguimos estacionar en la parte trasera.
 
@@ -129,15 +121,13 @@ Es particularmente interesante el cementerio situado, dentro de las murallas, en
 
 ![Area para AC en Bamberg](resources/img_0393300x225.jpg)
 
-**Area para AC en Bamberg**
-
 29.05.2007. Llegamos al área de Bamberg poco después de comer. Esta área que no dispone de servicios, situada al borde del río Regnitz tiene un costo simbólico de 50 céntimos.
 
 No ha parado de llover desde media mañana. Enfundados en los chubasqueros y armados de paraguas nos acercamos hasta el centro que dista un kilómetro del área. Visitamos detenidamente la catedral, una de las más hermosas e interesantes del viaje. Un excelente órgano austriaco está colgado en la nave central y tenemos la oportunidad de escuchar como el organista ensaya un concierto.
 
 30.05.2007. Amanece un día soleado propio para utilizar las bicicletas. Aprovechamos la ocasión para visitar Bamberg más a fondo. Podemos visitar el Rathaus, fotografiar los puentes, la impresionante catedral románica patear los alrededores de la Domplatz y el monasterio de Michaelsberg. No nos sorprende conocer que Bamberg pasa por ser una de las ciudades más bonitas de Alemania y Patrimonio Mundial de la UNESCO.
 
-Salimos a media tarde hacia Nuremberg, donde llegamos al área de Marienbelk (49º28’29’’N/11º05’39’’E) situada a unos 3,5 kilómetros del centro en un inmenso parque público. El área es gratuita y dispone de servicios. El suministro de agua a base de regadera y el vaciado a cubos así como el casette del Thettford en el váter público, pero suficiente.
+Salimos a media tarde hacia Nuremberg, donde llegamos al área de Marienbelk (49º28'29''N/11º05'39''E) situada a unos 3,5 kilómetros del centro en un inmenso parque público. El área es gratuita y dispone de servicios. El suministro de agua a base de regadera y el vaciado a cubos así como el casette del Thettford en el váter público, pero suficiente.
 
 Conocíamos ya la ciudad por haberla visitado anteriormente para conocer los excelentes órganos que hay en las diferentes iglesias. Hace buen tiempo y paseamos por el parque en bicicleta y nos acercamos al centro, pero estamos cansamos y decidimos regresar temprano.
 
@@ -148,8 +138,6 @@ Visitamos el Kaiserburg, Lorenzkirche, Sebalduskirche, Hauptmakt y en conjunto u
 Comemos en plena plaza de la Hauptmark, salchichas, chucrut y patatas, ¡que escasos son los alemanes con el pan en las comidas! (24 euros). Regresamos a media tarde con tiempo suficiente para otro amplio paseo en bicicleta por el parque donde nos tumbamos a la bartola en la hierba.
 
 ![El ayuntamiento de Wüzburg](resources/img_0525225x300.jpg)
-
-**El ayuntamiento de Wüzburg**
 
 01.06.2007. La RomantischeStrasse es una carretera que recorre de norte de sur una treintena de localidades a lo largo de unos trescientos cincuenta kilómetros entre las localidades de Wüzburg y Füssen, en los Alpes y que ofrecen un patrimonio histórico único. Plazas fuertes, castillos medievales y edificios históricos que atraen una cantidad ingente de turistas.
 
@@ -173,25 +161,21 @@ No nos convence para pernoctar el parking del Residentplatz en Wüzburg y gracia
 
 ![Unos inmensos jardines](resources/img_0565300x225.jpg)
 
-**Unos inmensos jardines**
-
 03.05.2007. El área ha resultado ser excesivamente ruidosa, al pié de las vías del tren, en un estacionamiento en el que aparcan los coches de los asistentes a una discoteca que está abierta hasta las seis de la mañana, las voces y el ruido de la música (o lo que sea) de la discoteca es muy poco alemán, a pesar de ello descansamos lo suficiente. Recomendamos utilizar el parking “Talavera” en la otra orilla del río, parece mas tranquilo.
 
 A bordo de las bicicletas recorremos la Altstadt, el puente medieval, la fortaleza Festung  Marienberg y las iglesias Neumünster y la Dom St. Kilian. Esta iglesia totalmente reconstruida a partir de las ruinas ocasionadas por las bombas de la segunda guerra, expone varios estilos desde el románico con una nave central desnuda y en penumbra hasta un coro lleno de luz y ornado con elementos modernos. El órgano es fabuloso y podemos comprobar que el organista es un maestro.
 
 La Resident nos ha impresionado y recorremos en las bicicletas los inmensos jardines del palacio barroco diseñado por Neuman. Wüzburg es una ciudad que nos ha entusiasmado con un ambiente extraordinario, la MarkPlatz se llena de pequeños establecimientos de comida. Despachamos medio metro de salchicha con una jarra de un excelente vino local blanco afrutado.
 
-Retomamos la carretera sin el TomTom para evitar las vías rápidas y llegar a Heidelberg a media tarde. Las plazas de estacionamiento de los jardines de la rivera del río Neckar están abarrotadas y debemos estacionar en un parking gratuito cercano en 49º24.858’N/8º40.537’E. Un largo paseo por la orilla donde grupos de personas hacen barbacoas, juegan al fútbol, toman el sol o pasean a pié o en bicicleta nos pone en disposición de descanso.
+Retomamos la carretera sin el TomTom para evitar las vías rápidas y llegar a Heidelberg a media tarde. Las plazas de estacionamiento de los jardines de la rivera del río Neckar están abarrotadas y debemos estacionar en un parking gratuito cercano en 49º24.858'N/8º40.537'E. Un largo paseo por la orilla donde grupos de personas hacen barbacoas, juegan al fútbol, toman el sol o pasean a pié o en bicicleta nos pone en disposición de descanso.
 
 04.06.2007. Salimos temprano con las bicicletas para visitar Heilderberg, un agradable paseo por la orilla del Neckar y tras vadearlo por el puente medieval nos dirigimos a la Markplatz no sin antes pasar la mano por un espejo que sostiene la estatua de un mono situado a la entrada del puente, con la esperanza que nos traiga riqueza según las tradiciones locales. Nos abstenemos de pasar la mano por unos ratones, también de bronce, que acompañan al mono pues no deseamos tener muchos mas hijos.
 
 A medida que nos acercamos a la ciudad se concreta la imponente mole del castillo. Por ocho euros tomamos dos tickets para subir hasta el castillo en un moderno funicular que parte desde el norte de la Altstadt. El castillo en ruinas, los jardines, su entorno y la panorámica de la ciudad que se divisa desde el castillo son impresionantes. La visita se complementa con la Markplatz, la universidad y la Dom, después de una breve compra y resguardarnos de un chaparrón regresamos a la autocaravana.
 
-Nada más comer emprendemos el camino hasta Maulbronn. Estacionamos en un parking a la entrada de la carretera que conduce al monasterio (48º59.940’N/8º48.326’E).
+Nada más comer emprendemos el camino hasta Maulbronn. Estacionamos en un parking a la entrada de la carretera que conduce al monasterio (48º59.940'N/8º48.326'E).
 
 ![Los edificios de la abadía de Maulbronn](resources/img_0920300x225.jpg)
-
-**Los edificios de la abadía de Maulbronn**
 
 05.06.2007. Comenzamos la visita a las 10 (11 euros), después de vaciar el depósito del váter en el váter público del estacionamiento donde hemos pernoctado. Tomamos una audioguía (2 euros). El conjunto abacial está impresionantemente conservado y restaurado de forma exquisita. En el recinto se destacan los graneros del SXV de ocho pisos y las casas auxiliares que ahora son el Rathaus y dependencias para el turismo.
 
@@ -201,7 +185,7 @@ El interior de la iglesia es magnífico, austero y a la vez elegante. En su conj
 
 La visita ha durado un par de horas. Partimos a continuación hacia Friburgo donde pernoctamos en el área de Südcaravan Freiburg, un distribuidor de AC.
 
-06.06.2007. A la mañana siguiente nos trasladamos al área de pago para autocaravanas situada en  (47º59’57.9’’N/7º49’31.5’’E) por 8.5 euros dispone de todos los servicios incluidos corriente eléctrica y Wi-Fi.
+06.06.2007. A la mañana siguiente nos trasladamos al área de pago para autocaravanas situada en  (47º59'57.9''N/7º49'31.5''E) por 8.5 euros dispone de todos los servicios incluidos corriente eléctrica y Wi-Fi.
 
 Tomamos las bicicletas y visitamos el centro histórico en el que se aprecia el ambiente juvenil universitario. Hay varios edificios muy notables y la Dom es una iglesia gótica muy interesante. En conjunto Freiburg nos pareció una ciudad agradable e interesante en su conjunto. Comimos en la auto y completamos las jornada paseando en bicicleta por el parque próximo al área y descansando del ajetreo de los últimos días.
 
@@ -215,7 +199,7 @@ La Orden consiguió un poder tan importante que en el S.XI lo ejercía a través
 
 En los siglos X y XI se acomete la construcción de una iglesia que se considera la cuna del románico, la iglesia mas importante de su época.
 
-Llegamos al área de Saint André D’Apchon, un lugar bonito y calmado sobre las 21:30 y pasamos una buena noche, algo mas fresca.
+Llegamos al área de Saint André D'Apchon, un lugar bonito y calmado sobre las 21:30 y pasamos una buena noche, algo mas fresca.
 
 08.06.2007. Continuamos el viaje de regreso después de renovar los depósitos. Ha sido un día duro de calor y de volante. Paramos a comer en el área de Baume-Les-Dames, que ya conocíamos de otros viajes. El TomTom nos llevó por pequeñas carreteras a partir de Clemont Ferrand, el paisaje de la campiña es muy hermoso pero avanzamos despacio. Decidimos retomar la N89 hasta Perigeux y luego la D933 hasta el pequeño pueblo de Castelljaloux donde existe un área para una media docena de autos con todos los servicios gratuitos.
 
