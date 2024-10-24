@@ -207,7 +207,7 @@ Lo cierto es que es difícil desplazarse por Francia y hacer grandes distancias 
 
 09.06.2007. Pasamos el día en Vieux Boucau paseando en bicicleta y tumbados al sol, disfrutando de la hospitalidad landesa en un área abarrotada por el módico precio de 10 euros incluidos todos los servicios.
 
-**CONCLUSIONES DEL VIAJE**
+**Conclusiones del viaje**
 
 Hemos realizado un viaje monográfico, destinado a la revisión del patrimonio histórico de una zona. Llegamos a la conclusión de que nos hemos saturado de datos, lugares, monumentos e iglesias. A pesar de ello entendemos que es una forma de abarcar un espacio que ha supuesto recorrer seis mil kilómetros en cuatro semanas.
 
@@ -217,7 +217,7 @@ Polonia es un país interesante que quizá requiere un viaje más dedicado y otr
 
 Hemos constatado que Polonia es un país seguro en el que se puede pernoctar en lugares donde está permitido estacionar. Carece de servicios específicos para autocaravanas y las pocas que vimos en los campings eran alemanas principalmente. Es fácil entenderse a pesar del idioma y en general, en nuestra experiencia, el trato con la gente ha sido frío y distante pero educado.
 
-**RECURSOS PARA AUTOCARAVANAS EN ALEMANIA.**
+**Recursos para autocaravanas en Alemania**
 
 En nuestra experiencia en todas las localidades hemos encontrado facilidades para estacionar y pernoctar en la autocaravana. En algunas localidades de la Ruta Romántica, hay lugares reservados a autocaravanas en zonas próximas a las áreas turísticas y prohibiciones en otros lugares a cambio.
 

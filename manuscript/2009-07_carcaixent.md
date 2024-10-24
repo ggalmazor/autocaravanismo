@@ -3,7 +3,7 @@
 
 ![Senderismo por las cumbres de Carcaixent](resources/img_3902.jpg)
 
-Mi pareja y yo somos poco partidarios de las quedadas. Asistimos como mucho a un par de ellas al año y cuando nos marchamos no podemos explicarnos porqué no somos más partidarios puesto que, salvo la juerga nocturna, lo pasamos fenomenalmente además de conocer a mucha gente interesante.
+Charo y yo somos poco partidarios de las quedadas. Asistimos como mucho a un par de ellas al año y cuando nos marchamos no podemos explicarnos porqué no somos más partidarios puesto que, salvo la juerga nocturna, lo pasamos fenomenalmente además de conocer a mucha gente interesante.
 
 En las quedadas cada uno da lo mejor de sí mismo y satisface además el espíritu gregario de la  persona. Compartir la comida y las ideas, incluso hablar de problemas y sus reivindicaciones son situaciones que nos acercan a los compañeros como personas.
 
