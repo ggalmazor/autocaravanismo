@@ -89,9 +89,7 @@ Tomamos otra vez la carretera de Óbidos para girar al norte hasta Alcobaça y v
 
 Como nos apetece sol y baño y hace un tiempo adecuado, nos acercamos a Nazarè en cuya playa terminamos la mañana y comemos.
 
-Por la tarde, nos dirigimos a Batalha para visitar el monasterio que se erigió para conmemorar la batalla de
-
-en la que se enfrentaron los dos pretendientes al trono de Portugal.
+Por la tarde, nos dirigimos a Batalha para visitar el monasterio que se erigió para conmemorar la batalla de en la que se enfrentaron los dos pretendientes al trono de Portugal.
 
 La iglesia destaca por la esbeltez y sobriedad de la bóveda y las vidrieras de la capilla mayor del S.XVI. Del monasterio lo más destacable es el claustro real donde la unión de los estilos gótico y manuelino se realiza felizmente. La sala  capitular alberga la tumba al soldado desconocido.
 

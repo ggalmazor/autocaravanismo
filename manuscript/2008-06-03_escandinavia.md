@@ -139,9 +139,7 @@ Volvemos a pasear por los alrededores disfrutando del paisaje. A mediodía Charo
 
 Por la tarde reanudamos el viaje hasta el área de autocaravanas de Eggum, situada en un paraje increíble al noroeste de la isla Vestvagoy. A los pies de un lago glaciar que desagua en el mar, con una cascada al fondo y un pequeño fortín. Se trata de un área dotada de un bloque sanitario con calefacción y con suministro de agua potable en la que aparcamos un par de docenas de autocaravanas dispuestas a pasar la noche con una visibilidad total del horizonte al noroeste. (68º18.476′N/ 13º39.258′E).
 
-El tiempo es magnífico y nos permite ver cómo el astro rey describe un elipse en el horizonte, durante la noche, sin
-
-desaparecer bajo las aguas. Es un espectáculo impactante y uno de los objetivos del viaje cubiertos.
+El tiempo es magnífico y nos permite ver cómo el astro rey describe un elipse en el horizonte, durante la noche, sin desaparecer bajo las aguas. Es un espectáculo impactante y uno de los objetivos del viaje cubiertos.
 
 Todavía impresionados por el espectáculo del sol de media noche reemprendemos el viaje hasta el extremo occidental de la carretera E10, en A i Lofoten, una pequeña población de pescadores en la que proliferan numerosas empalizadas destinadas al secado del pescado. La isla finaliza con una vista espectacular sobre extremo oeste de las mayores islas del archipiélago. Regresamos a Moskenes para tomar el ferry que nos llevaría hasta Bodo ya en el continente.
 

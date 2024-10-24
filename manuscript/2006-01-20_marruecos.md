@@ -99,9 +99,7 @@ Ahmed nos explica que la medina tiene cuatro barrios además de la Mellah cuyos 
 
 Por encima de la proyección turística de los negocios de la medina, sus gentes mantienen una forma de vivir tradicional como si el tiempo se hubiera detenido hace mil años.
 
-Cuando hablamos de un zoco nos referimos a un mercado pero en las medinas de las grandes ciudades, no podemos
-
-hablar de un mercado en general sino del mercado de las babuchas, o el de los tejidos o el de las especias, la fruta o el cuero.
+Cuando hablamos de un zoco nos referimos a un mercado pero en las medinas de las grandes ciudades, no podemos hablar de un mercado en general sino del mercado de las babuchas, o el de los tejidos o el de las especias, la fruta o el cuero.
 
 Comemos los tres en el restaurante El Blida, cuscús, brochetas, pastilla y ensalada marroquí, excelente. (600 DH)
 
@@ -193,9 +191,7 @@ Son las siete de la mañana y el termómetro marca menos de cuatro grados, amane
 
 Desistimos atravesar el río y visitar la Casbah a pesar de que los guardianes de los asnos, como quien no quiere la cosa, han traído uno digno de mi tamaño y nos conformamos con contemplar los edificios perfectamente armonizados con el entorno que exponen una forma de vivir de una sociedad antigua pero actual.
 
-Este conjunto de Casbashs es uno de los mejores conservados de toda la región del Atlas ya que ha recibido
-
-financiación por haber sido escenario de una veintena de películas y que cuenta con la proximidad de los estudios de cine de Oauarzazate donde se han rodado varias películas de gran presupuesto como Gladiador. Estos estudios se pueden visitar cuando no se rueda una película.
+Este conjunto de Casbashs es uno de los mejores conservados de toda la región del Atlas ya que ha recibido financiación por haber sido escenario de una veintena de películas y que cuenta con la proximidad de los estudios de cine de Oauarzazate donde se han rodado varias películas de gran presupuesto como Gladiador. Estos estudios se pueden visitar cuando no se rueda una película.
 
 Continuamos el camino hacia la Casbah de Tamdaght, distante a siete kilómetros, pero cuando la tenemos a la vista nos encontramos con un puente derruido y los vehículos tienen que vadear el río. Nos damos la vuelta y emprendemos el camino hacia Marrakech.
 
@@ -271,9 +267,7 @@ Le ofrezco 40 DH en agradecimiento por sus indicaciones y nos dice que sus honor
 
 Nos alojamos en el camping de “La Plage” y comentando con un compañero autocaravanista francés nos indicó que la palabra mágica es “Oualú”, es decir: “No necesito nada”, lo mismo que la palabra “Ouajá”, quiere decir “De acuerdo”.
 
-Tomamos un “Grand Taxi” a Rabat (30 DH) y visitamos la  torre Hassan que es el minarete de una mezquita construida
-
-en 1195. El proyecto inicial de llegar hasta los 60 metros fue abandonado quedando en unos bellísimos 40  metros. Junto con el mausoleo de Mohamed V, ambos constituyen los monumentos más representativos de Rabat.
+Tomamos un “Grand Taxi” a Rabat (30 DH) y visitamos la  torre Hassan que es el minarete de una mezquita construida en 1195. El proyecto inicial de llegar hasta los 60 metros fue abandonado quedando en unos bellísimos 40  metros. Junto con el mausoleo de Mohamed V, ambos constituyen los monumentos más representativos de Rabat.
 
 Hacemos una visita al departamento de cartografía donde adquirimos algunos mapas de Marruecos a escala 1:250.000. El personal de oficina despliega una considerable desconfianza a los potenciales compradores de cartografía extranjeros.
 
