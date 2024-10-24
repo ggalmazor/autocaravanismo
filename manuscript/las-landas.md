@@ -1,7 +1,7 @@
 # Las Landas
 ## 2007
 
-![Paseos en bicicletas por las pistas entre el bosque](img_1612.jpg)
+ ![Paseos en bicicletas por las pistas entre el bosque](resources/img_1612.jpg)
 
 **Paseos en bicicletas por las pistas entre el bosque**
 
@@ -15,7 +15,7 @@ El turismo de naturaleza es la oferta predominante. Pequeñas poblaciones cuidad
 
 Y entre tanta naturaleza, los caminos que invitan a pasear a pié o en bicicleta, se adentran en los bosques. También hay una abundante oferta de deportes al aire libre. Toda la costa es una gran playa abierta donde se practica el surf.
 
-![Área en Contis Plage](img_1605300x225.jpg)
+ ![Área en Contis Plage](resources/img_1605300x225.jpg)
 
 **Área en Contis Plage**
 
@@ -27,7 +27,7 @@ Junto a esta oferta coexisten también decenas de áreas para autocaravanas, muc
 
 Esta salida que ha durado unos diez días la hemos centrado entre los grandes lagos del norte y el de Leon combinando la acampada, la playa y los paseos tanto a pié como en bicicleta.
 
-![Acampada permitida en el área de Sainte Eulalie en Born](img_1614300x225.jpg)
+ ![Acampada permitida en el área de Sainte Eulalie en Born](resources/img_1614300x225.jpg)
 
 Acampada permitida en el área de Sainte Eulalie en Born
 
@@ -101,11 +101,11 @@ Estas son las áreas visitadas. En la zona, entre Vieux Boucau y Soustons y Los 
 
 **Hay más áreas en el interior.**
 
-![Ordenanza Municipal en Contis que indica la regulación para autocaravanas](img_1603150x150.jpg)
+ ![Ordenanza Municipal en Contis que indica la regulación para autocaravanas](resources/img_1603150x150.jpg)
 
-![Señales colocadas en diferentes puntos de varias poblaciones costeras](img_1604150x150.jpg)
+ ![Señales colocadas en diferentes puntos de varias poblaciones costeras](resources/img_1604150x150.jpg)
 
-![Otro tipo de señales con la misma limitación](img_1618150x150.jpg)
+ ![Otro tipo de señales con la misma limitación](resources/img_1618150x150.jpg)
 
 Ordenanza Municipal en Contis que indica la regulación para autocaravanas
 
@@ -157,7 +157,7 @@ Vieux Boucau, 43.79511° / -1.40492° (43° 47′ 42.396′′ N / 1° 24′ 17.
 
 Tarifas: 10,00€ de junio a septiembre, 5,00€ el resto del año.
 
-![Placa que indica a la entrada de una población que el uso de las autocaravanas está retgulado](img_1608150x150.jpg)
+ ![Placa que indica a la entrada de una población que el uso de las autocaravanas está retgulado](resources/img_1608150x150.jpg)
 
 Placa que indica a la entrada de una población que el uso de las autocaravanas está retgulado
 

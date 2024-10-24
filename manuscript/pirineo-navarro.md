@@ -1,6 +1,6 @@
 # Pirineo Navarro
 
-![Vista del valle del Baztan desde Ciga](vallebaztanportada.jpg)
+ ![Vista del valle del Baztan desde Ciga](resources/vallebaztanportada.jpg)
 
 **Vista del valle del Baztan desde Ciga**
 
@@ -12,9 +12,9 @@ En esta salida, durante una semana hemos recorrido dos de los valles  tradiciona
 
 La pernocta en la autocaravana no presenta ningún problema en una zona que no está saturada. La falta de infraestructuras la hemos resuelto vaciando y llenando los depósitos en las estaciones de servicio, en especial la de la carretera de Pamplona a Arre que dispone de instalaciones adecuadas.
 
-![Parking en la estación patatera de Otsagabia](parkingotsagabia300x225.jpg)
+ ![Parking en la estación patatera de Otsagabia](resources/parkingotsagabia300x225.jpg)
 
-![Parking en el estacionamiento del pantano de Irabia](parkingirati300x225.jpg)
+ ![Parking en el estacionamiento del pantano de Irabia](resources/parkingirati300x225.jpg)
 
 **Parking en la estación patatera de Otsagabia**
 
@@ -56,9 +56,9 @@ Al iniciar el descenso topamos con la ermita de N.S.de Muskilda, Construida en e
 
 Llegamos a tiempo de comer en la sidrería Kixkia una excelente menestra y un buen ajoarriero, 35 euros los dos menús.
 
-![Parking en el Señorío de Bertiz](parkingbertiz300x225.jpg)
+ ![Parking en el Señorío de Bertiz](resources/parkingbertiz300x225.jpg)
 
-![Cuevas del akelarre en Zugarramurdi](cuevatrasera300x225.jpg)
+ ![Cuevas del akelarre en Zugarramurdi](resources/cuevatrasera300x225.jpg)
 
 **Parking en el Señorío de Bertiz**
 
@@ -92,7 +92,7 @@ Llagamos al aparcamiento de Zugarramurdi donde pernoctamos sin problemas y en pa
 
 A la mañana siguiente visitamos las cuevas. Una gran cavidad en la roca caliza donde según la tradición se celebraban aquelarres en un prado frente a la cueva las noches de luna llena. Al parecer, las aguas que se filtran en las paredes de la cueva contienen fósforo y calcio, las brujas desnudas se impregnaban el cuerpo que brillaba en la noche. El recorrido por el recinto es espectacular y nos lleva un par de horas.
 
-![Una calera en Bertiz](calera300x225.jpg)
+ ![Una calera en Bertiz](resources/calera300x225.jpg)
 
 **Una calera en Bertiz**
 

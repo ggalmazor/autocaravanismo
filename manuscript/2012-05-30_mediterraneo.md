@@ -7,7 +7,7 @@ Salimos después de nueve meses en el dique seco debido a una enfermedad y una d
 
 Tomamos el camino con la intención de llegar al Mediterráneo en busca de sol y buen tiempo. Como no tenemos prisa, decidimos realizar la primera etapa en la recientemente inaugurada área de Falces.
 
-![Torre mudéjar del Monasterio de Rueda](monasterioderueda169x300.jpg)
+ ![Torre mudéjar del Monasterio de Rueda](resources/monasterioderueda169x300.jpg)
 
 **Falces, 28 de mayo.**
 
@@ -29,11 +29,11 @@ Soportamos el ataque desaforado de una miríada de mosquitos de lo más agresivo
 
 Llegamos al anochecer al área de Ascó, bien diseñada con un borne de servicios cómodo y limpio. Dormimos bien a pesar de que el área está situada al borde la carretera y junto a las vías del tren.
 
-![Paseo marítimo de Cambrils](paseomaritimocambrils300x169.jpg)
+ ![Paseo marítimo de Cambrils](resources/paseomaritimocambrils300x169.jpg)
 
-![Camper Park de Mont Roig](camperareamontroig300x169.jpg)
+ ![Camper Park de Mont Roig](resources/camperareamontroig300x169.jpg)
 
-![Observatorio de aves en el Delta del Ebro](observatorioavesdeltaebro300x169.jpg)
+ ![Observatorio de aves en el Delta del Ebro](resources/observatorioavesdeltaebro300x169.jpg)
 
 Cambrils, 30, 31 de mayo y 1, 5 y 6 de junio.
 
@@ -59,11 +59,11 @@ El día 1 de junio marchamos al Delta pero regresamos el 5 huyendo de los mosqui
 
 Llegamos al área del restaurante l’Estany, junto a la casa de Fusta y nos encontramos que una buena parte del área estaba ocupada por un grupo de autocaravanistas catalanes. Nos acomodamos según lo previsto y pernoctamos el sábado. Al día siguiente salimos a dar la consabida vuelta en bicicleta a la laguna de la Encanyzada. Comimos en el restaurante, después de saludar a Luis, su propietario. Dos raciones de un más que notable arroz con pato y una ración de almejas con alcachofas, con una buena garnacha y café nos costaron 45,00€.
 
-![Playa Trabucador](playatrabucador300x169.jpg)
+ ![Playa Trabucador](resources/playatrabucador300x169.jpg)
 
-![Prohibiciones ilegales en Riumar (Deltebre)](prohibidoperrosautocaravanas300x169.jpg)
+ ![Prohibiciones ilegales en Riumar (Deltebre)](resources/prohibidoperrosautocaravanas300x169.jpg)
 
-![A pesar de todo en Riumar (Delta del Ebro)](apesardetodoriumar300x169.jpg)
+ ![A pesar de todo en Riumar (Delta del Ebro)](resources/apesardetodoriumar300x169.jpg)
 
 
 
@@ -87,9 +87,9 @@ Nadie nos incordió, así que un poco agobiados por el calor, decidimos regresar
 
 Decidimos también ir a Vic a revisar la centralita de la autocaravana que nos estaba fallando, por lo que cambiamos el rumbo sur por el norte.
 
-![Josep el anfitrión.](josepdeartcava300x169.jpg)
+ ![Josep el anfitrión.](resources/josepdeartcava300x169.jpg)
 
-![Platja d'Aro llena de autocaravanas](platjadaro300x169.jpg)
+ ![Platja d'Aro llena de autocaravanas](resources/platjadaro300x169.jpg)
 
 **Avignonet, 7 de junio.**
 
@@ -115,9 +115,9 @@ Platja d’Aro es una bonita población con una hermosa playa y un paseo maríti
 
 Salimos el día 9 hacia Ripoll con una para en Banyolas, junto al lago, para darle la vuelta en bicicleta y comer.
 
-![Claustro del monasterio de Ripoll](claustromonasterioripoll300x169.jpg)
+ ![Claustro del monasterio de Ripoll](resources/claustromonasterioripoll300x169.jpg)
 
-![Por la Vía Verde del Hiero y del Carbón](porlaviaverdedelhierro300x169.jpg)
+ ![Por la Vía Verde del Hiero y del Carbón](resources/porlaviaverdedelhierro300x169.jpg)
 
 **Ripoll, 10 de junio.**
 

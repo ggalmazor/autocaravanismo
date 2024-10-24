@@ -1,7 +1,7 @@
 # Escandinavia
 ## 2008, 3 junio - 24 junio
 
-![Casas de pescadores en Svolvaer (Lofoten)](img_0930.JPG)
+ ![Casas de pescadores en Svolvaer (Lofoten)](resources/img_0930.JPG)
 
 **Casas de pescadores en Svolvaer (Lofoten)**
 
@@ -21,7 +21,7 @@ Este relato no pretende descubrir las maravillas de la naturaleza que hemos teni
 
 En este relato queremos también indicar los recursos para los autocaravanistas, los lugares visitados y los kilómetros recorridos con la idea de que sirvan de orientación para cualquier otro compañero que tome la acertada de decisión de viajar hasta estos lugares que atesoran una belleza incomparable.
 
-![Le Mont Saint Michael](img_0190300x225.jpg)
+ ![Le Mont Saint Michael](resources/img_0190300x225.jpg)
 
 **Comenzamos el viaje de aproximación (2 de junio)**
 
@@ -43,7 +43,7 @@ Continuamos el viaje hasta la pequeña población de Hondschoote (F), en la fron
 
 Continuamos viaje hasta el área de autocaravanas de la pequeña ciudad de Xanten (D) en Alemania (52º54’1.404′N/8º25’38.496”E).
 
-![Isla de Faro, área de acampada](img_0401300x225.jpg)
+ ![Isla de Faro, área de acampada](resources/img_0401300x225.jpg)
 
 **Isla de Faro, área de acampada**
 
@@ -57,9 +57,9 @@ Nos hemos dado cuenta de que entre nuestro propósito de viajar sin prisas, de e
 
 La conducción de una autocaravana por las autopistas alemanas es fácil pero muy estresante. Los conductores son rápidos pero muy concienciados para facilitar las maniobras de inserción, intersección y adelantamiento a los demás conductores, pero requiere una concentración extrema, sobre todo para adelantar camiones, a menos que adaptemos nuestro vehículo a su velocidad (80/90 km/h).
 
-![Paseo en bicicleta por Copenhague](img_0424300x225.jpg)
+ ![Paseo en bicicleta por Copenhague](resources/img_0424300x225.jpg)
 
-![El palacio de Hamlet en Helsingor](img_0452300x225.jpg)
+ ![El palacio de Hamlet en Helsingor](resources/img_0452300x225.jpg)
 
 **Paseo en bicicleta por Copenhague**
 
@@ -81,9 +81,9 @@ La primera área de descanso está situada a un kilómetro escaso de la salida d
 
 Con unas magníficas vistas sobre el lago Vattern pernoctamos junto a otras dos autocaravanas y tres caravanas con una absoluta sensación de seguridad. (59º19’12.36”N/18º1’48.54”E).
 
-![En el Ayuntamiento de Estocolmo en bicicleta](img_0485300x225.jpg)
+ ![En el Ayuntamiento de Estocolmo en bicicleta](resources/img_0485300x225.jpg)
 
-![La catedrañ de Upsala desde el castillo](img_0533300x225.jpg)
+ ![La catedrañ de Upsala desde el castillo](resources/img_0533300x225.jpg)
 
 **En el Ayuntamiento de Estocolmo en bicicleta**
 
@@ -115,9 +115,9 @@ Siguen los bosques de abedules, pinos y abetos interrumpidos por lagos con muy p
 
 Llegamos a la población de Stromsund a un parking a la orilla del lago Rufssjarden. Un rincón increíble al lado de un poblado para los pequeños con un troll de piedra en el acceso con megafonía que no paraba de contar cuentos. Pernoctamos después, de un largo paseo, en compañía de otras cuatro autocaravanas, lo más alejados posibles de pelmazo del troll. (63º50.976′N/15º33.180′E).
 
-![Túmulo del Círculo Polar Ártico en Jokkmokk](img_0676300x225.jpg)
+ ![Túmulo del Círculo Polar Ártico en Jokkmokk](resources/img_0676300x225.jpg)
 
-![Puente de entrada en las islas Lofoten](img_0875300x225.jpg)
+ ![Puente de entrada en las islas Lofoten](resources/img_0875300x225.jpg)
 
 **Túmulo del Círculo Polar Ártico en Jokkmokk**
 
@@ -147,9 +147,9 @@ He cogido un catarro impresionante, a pesar de ello damos un paseo por una de la
 
 La pesca del bacalao se realiza en invierno y por todas partes hay empalizadas donde se secan al sol las capturas del invierno.
 
-![Lago glaciar en Eggum](img_1002300x225.jpg)
+ ![Lago glaciar en Eggum](resources/img_1002300x225.jpg)
 
-![Área para autocaravanas en Eggum](img_1005300x225.jpg)
+ ![Área para autocaravanas en Eggum](resources/img_1005300x225.jpg)
 
 **Lago glaciar en Eggum**
 
@@ -173,7 +173,7 @@ Tradicionalmente la actividad principal de los habitantes de las islas Lofoten h
 
 Decidimos pernoctar en un área de descanso de la carretera E6, entre Bodo y Fauske, en compañía de una auto francesa pilotada por Pierre. (67º17.895′N/ 14º52.533′E).
 
-![Es el terreno de los ferry](img_1131225x300.jpg)
+ ![Es el terreno de los ferry](resources/img_1131225x300.jpg)
 
 **Es el terreno de los ferry**
 
@@ -189,7 +189,7 @@ Decidimos regresar a Mosjoen para realizar una consulta en el hospital local don
 
 La atención está cubierta por la seguridad social, la tarjeta azul funciona, a pesar de ello debemos hacer efectivas 770 coronas por la atención médica y 145 por la medicación cantidades que nos serán reembolsadas por el seguro de asistencia en carretera de Allianz, según nos indican.
 
-![Las carreteras discurren por el mar](img_1266300x225.jpg)
+ ![Las carreteras discurren por el mar](resources/img_1266300x225.jpg)
 
 **Las carreteras discurren por el mar**
 
@@ -207,7 +207,7 @@ En Noruega nos ha llamado la atención la cantidad de pequeñas casas de madera,
 
 Por otra parte, la proliferación de vehículos vivienda tanto caravanas como autocaravanas, está justificado por el derecho constitucional que tienen los ciudadanos escandinavos a la acampada libre, donde solamente está regulada para proteger los intereses medioambientales o públicos a diferencia de nuestro país que está prohibida únicamente para defender los intereses privados de los empresarios de camping.
 
-![Con el Geiragerfjor al fondo](img_1448300x225.jpg)
+ ![Con el Geiragerfjor al fondo](resources/img_1448300x225.jpg)
 
 **Una carretera sobre el mar (21 de junio)**
 
@@ -231,7 +231,7 @@ Numerosos neveros, algunos de más de tres metros de altura se sitúan en los bo
 
 Llegamos a Oppedal después de pasar el Sognefjorden en un ferry que tomamos en Lavik, donde pernoctamos (61º02-742′N/ 5º29.037′E).
 
-![Con el barrio de Bryggen al fondo bajo la lluvia](img_1547300x225.jpg)
+ ![Con el barrio de Bryggen al fondo bajo la lluvia](resources/img_1547300x225.jpg)
 
 Con el barrio de Bryggen al fondo bajo la lluvia
 
@@ -245,7 +245,7 @@ En Bergen visitamos el centro de la ciudad, el barrio medieval de Bryggen consti
 
 Continuamos viaje por la carretera E16, hasta Kinsarvik después de tomar el enésimo ferry para atravesar el Eidfjord entre Briones y Bruravic. Pernoctamos en un área de descanso de una estación de servicio. (60º22.445′N/ 60º22.445′N).
 
-![Las iglesias de madera](img_1656225x300.jpg)
+ ![Las iglesias de madera](resources/img_1656225x300.jpg)
 
 **Las iglesias de madera**
 
@@ -261,7 +261,7 @@ En el viaje de regreso atravesamos el sur de Suecia por la  autopista E-E20, tom
 
 Una vez en Dinamarca, en Helsingor, visitamos el famoso castillo de Helsinore donde transcurre la acción del Hamlet de Shakespeare.
 
-![En las proximidades de un área francesa](img_1693225x300.jpg)
+ ![En las proximidades de un área francesa](resources/img_1693225x300.jpg)
 
 **En las proximidades de un área francesa**
 
@@ -279,7 +279,7 @@ Hace buen tiempo y luce el sol. Nos encaminamos al área de Gastes, nuestra favo
 
 El tiempo ha empeorado y nos encontramos con deseos de regresar a casa. Hacemos la limpieza, recogemos la ropa para lavar y a las cuatro de tarde estacionamos enfrente de casa en Donostia.
 
-![El área de Gastes, nuestra favorita en las Landas](img_1702300x225.jpg)
+ ![El área de Gastes, nuestra favorita en las Landas](resources/img_1702300x225.jpg)
 
 **El área de Gastes, nuestra favorita en las Landas**
 
