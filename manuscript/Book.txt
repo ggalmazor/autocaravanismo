@@ -12,12 +12,3 @@ presentacion.md
 2011-05-30_galicia.md
 2012-05-30_mediterraneo.md
 2012-08_francia.md
-donostia.md
-2010-02_gipuzkoa.md
-2012-02_costa-gipuzkoa.md
-urbasa-y-urederra.md
-cascante.md
-pirineo-navarro.md
-2009-07_carcaixent.md
-moliets-et-maa.md
-las-landas.md
